@@ -1,6 +1,6 @@
 # Site settings
-title: Jekyll-Uno
-description: 'Jekyll-Uno - a minimal, responsive theme for Jekyll'
+title: Moonbird Thinker
+description: 'Moonbird Thinker`s Personal Blog'
 url: 'https://moonbird-thinker.github.io'
 baseurl: ''
 # google_analytics: 'UA-XXXXXX-X'
@@ -8,12 +8,12 @@ baseurl: ''
 # disable_landing_page: true
 
 author:
-  name: 'Josh Gerdes'
-  email: josh@joshgerdes.com
-  twitter_username: joshgerdes
-  facebook_username: joshgerdes
-  github_username:  joshgerdes
-  linkedin_username:  joshgerdes
+  name: 'Moonbird Thinker'
+  email: moonbird.thinker@gmail.com
+  # twitter_username: Moonbird Thinker
+  # facebook_username: Moonbird Thinker
+  # github_username:  moonbird-thinker
+  # linkedin_username:  Moonbird Thinker
 
 defaults:
   -
