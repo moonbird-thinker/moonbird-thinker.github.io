@@ -13,7 +13,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ee67/08a6cdb1b0e0cd759e0a6b40806325244a0c01041be774fe65a0e41a8c6e.JPG){: width="300" height="300" .w-50 .left}
 
 
-[당일발송 JEEP buluo 남자 지프 가방 가벼운 15인치 노트북 큰 백팩 방수 USB 남성 여성 책 가방 여행용 기내용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7455890963&traceid=V0-153&itemId=19421975773&vendorItemId=86535943337)
+[당일발송 JEEP buluo 남자 지프 가방 가벼운 15인치 노트북 큰 백팩 방수 USB 남성 여성 책 가방 여행용 기내용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7455890963&traceid=V0-153&itemId=19421975773&vendorItemId=86535943337)
 <br>
 - 할인율과 원래가격: 
 - 가격: 51,990원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7455890963&traceid=V0-153&itemId=19421975773&vendorItemId=86535943337){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7455890963&traceid=V0-153&itemId=19421975773&vendorItemId=86535943337){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a153/91e81f6a391876ff5e967bbd8c94d67dd910ce9f6932e85a6b5b9ce31c4c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[ANYOU 패션 여성 체인 통근 숄더백 크로스백 가방 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894)
+[ANYOU 패션 여성 체인 통근 숄더백 크로스백 가방 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894)
 <br>
 - 할인율과 원래가격: 
 - 가격: 33,800원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9fce/1f2c88e49e75a1a7a7b45bde5a1a4ad9b1c505dcbb69ce6b364d30c96a8d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[제이두두 여성크로스백 데일리백 가죽 미니핸드백 JD11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048)
+[제이두두 여성크로스백 데일리백 가죽 미니핸드백 JD11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 29,700원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7200776442&traceid=V0-153&itemId=18201189669&vendorItemId=85649018048){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9709/20c7e419ffadea1e0341b211600c947baf4dc4275096d5be5e225cba9393.jpg){: width="300" height="300" .w-50 .right}
 
 
-[여성 캐주얼 토트백 숄더백 크로스백 카드지갑 대용량 4종세트 여성백 여성 가방 핸드백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7405561759&traceid=V0-153&itemId=19176652938&vendorItemId=86701861580)
+[여성 캐주얼 토트백 숄더백 크로스백 카드지갑 대용량 4종세트 여성백 여성 가방 핸드백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7405561759&traceid=V0-153&itemId=19176652938&vendorItemId=86701861580)
 <br>
 - 할인율과 원래가격: 
 - 가격: 44,900원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7405561759&traceid=V0-153&itemId=19176652938&vendorItemId=86701861580){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7405561759&traceid=V0-153&itemId=19176652938&vendorItemId=86701861580){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/eac4/2078e8c0bf288452cb4c75ca07b3771bd81e9a94a8054988c4a8e908a91b.png){: width="300" height="300" .w-50 .left}
 
 
-[아크쉐라 캐리어 여행가방 수화물용 화물용 기내용 여행용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7373612348&traceid=V0-153&itemId=19026636567&vendorItemId=86041187056)
+[아크쉐라 캐리어 여행가방 수화물용 화물용 기내용 여행용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7373612348&traceid=V0-153&itemId=19026636567&vendorItemId=86041187056)
 <br>
 - 할인율과 원래가격: 
 - 가격: 87,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7373612348&traceid=V0-153&itemId=19026636567&vendorItemId=86041187056){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7373612348&traceid=V0-153&itemId=19026636567&vendorItemId=86041187056){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/36e2/11c981d549acb23048357d456c33234f3b088a6d781d692369d6fb1fba98.jpg){: width="300" height="300" .w-50 .right}
 
 
-[마크라이든 수트케이스 여행 보스턴백 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1519793205&traceid=V0-153&itemId=2607867848&vendorItemId=87305446658)
+[마크라이든 수트케이스 여행 보스턴백 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1519793205&traceid=V0-153&itemId=2607867848&vendorItemId=87305446658)
 <br>
 - 할인율과 원래가격: 
 - 가격: 48,800원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1519793205&traceid=V0-153&itemId=2607867848&vendorItemId=87305446658){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1519793205&traceid=V0-153&itemId=2607867848&vendorItemId=87305446658){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/06dc/b844056342ff1785850ddd392e3f676dda3264d6302aad3989b98fb7934a.jpg){: width="300" height="300" .w-50 .left}
 
 
-[ANYOU 여성 대용량 가벼운 버킷백 직장인 데일리 럭셔리 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=86655952213)
+[ANYOU 여성 대용량 가벼운 버킷백 직장인 데일리 럭셔리 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=86655952213)
 <br>
 - 할인율과 원래가격: 
 - 가격: 27,880원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=86655952213){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=86655952213){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce2e/22ce210575b3a4ce160f946b514d78975e52913ee16fa8b14e3696275152.png){: width="300" height="300" .w-50 .right}
 
 
-[남성 비즈니스 통근 트림피 가방 남자 가죽 크로스백 남자가방숄더백 남자직장인가방 소가죽3색옵션대용량다층 분구정연하게 수납하기](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7448465172&traceid=V0-153&itemId=19385087098&vendorItemId=86497535611)
+[남성 비즈니스 통근 트림피 가방 남자 가죽 크로스백 남자가방숄더백 남자직장인가방 소가죽3색옵션대용량다층 분구정연하게 수납하기](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7448465172&traceid=V0-153&itemId=19385087098&vendorItemId=86497535611)
 <br>
 - 할인율과 원래가격: 
 - 가격: 18,300원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7448465172&traceid=V0-153&itemId=19385087098&vendorItemId=86497535611){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7448465172&traceid=V0-153&itemId=19385087098&vendorItemId=86497535611){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6dee/0cb4e9e6b6596b1433ea4b6f2e1a15a757404636a237b14a2587b308c148.jpg){: width="300" height="300" .w-50 .left}
 
 
-[캉가 여권 복대 팬티 휴대용 보조 가방 안전 케이스](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7552724945&traceid=V0-153&itemId=19880737541&vendorItemId=86981283031)
+[캉가 여권 복대 팬티 휴대용 보조 가방 안전 케이스](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7552724945&traceid=V0-153&itemId=19880737541&vendorItemId=86981283031)
 <br>
 - 할인율과 원래가격: 
 - 가격: 11,800원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7552724945&traceid=V0-153&itemId=19880737541&vendorItemId=86981283031){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7552724945&traceid=V0-153&itemId=19880737541&vendorItemId=86981283031){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![면세점가방추천 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e1f6/a3c7573fea1d70ac16d5e73b812397f23bfaadcde8055550bf4e42bba039.jpg){: width="300" height="300" .w-50 .right}
 
 
-[ANYOU 여성 가방 직장인 숄더 대용량 고급스러운 숄더백 토트 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7500569809&traceid=V0-153&itemId=19633428670&vendorItemId=86938935691)
+[ANYOU 여성 가방 직장인 숄더 대용량 고급스러운 숄더백 토트 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7500569809&traceid=V0-153&itemId=19633428670&vendorItemId=86938935691)
 <br>
 - 할인율과 원래가격: 
 - 가격: 76,800원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7500569809&traceid=V0-153&itemId=19633428670&vendorItemId=86938935691){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7500569809&traceid=V0-153&itemId=19633428670&vendorItemId=86938935691){: .left}
 <br>
 <br>
 

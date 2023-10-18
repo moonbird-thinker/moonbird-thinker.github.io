@@ -13,7 +13,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f13a/55355d5a2f6c38263d076ba670377d8ba0e6ac2b0a490bef404e7ecc06e6.jpeg){: width="300" height="300" .w-50 .left}
 
 
-[아메리칸 투어리스터 20인치 하드 캐리어 MODERN DREAM 블랙  네이비](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7252437542&traceid=V0-153&itemId=18451397542&vendorItemId=85592161465)
+[아메리칸 투어리스터 20인치 하드 캐리어 MODERN DREAM 블랙  네이비](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7252437542&traceid=V0-153&itemId=18451397542&vendorItemId=85592161465)
 <br>
 - 할인율과 원래가격: 즉시할인가 84%  799,000   원
 - 가격: 199,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7252437542&traceid=V0-153&itemId=18451397542&vendorItemId=85592161465){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7252437542&traceid=V0-153&itemId=18451397542&vendorItemId=85592161465){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/23/17/5/4299a914-0444-4ae9-b27a-337213fc755a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아메리칸투어리스터 SUMMER SPLASH SPINNER TSA 캐리어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7353475494&traceid=V0-153&itemId=18928108621&vendorItemId=86055000385)
+[아메리칸투어리스터 SUMMER SPLASH SPINNER TSA 캐리어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7353475494&traceid=V0-153&itemId=18928108621&vendorItemId=86055000385)
 <br>
 - 할인율과 원래가격: 즉시할인가 34%  50,000   원
 - 가격: 172,500원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7353475494&traceid=V0-153&itemId=18928108621&vendorItemId=86055000385){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7353475494&traceid=V0-153&itemId=18928108621&vendorItemId=86055000385){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e136/7cfe09e09e2019f733141a7da640b2ebd584dbc7b196cacb0cbcdeace782.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아메리칸투어리스터 FLINT 캐리어 2종 세트 24Q](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=136060428&traceid=V0-153&itemId=398832115&vendorItemId=70103987041)
+[아메리칸투어리스터 FLINT 캐리어 2종 세트 24Q](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=136060428&traceid=V0-153&itemId=398832115&vendorItemId=70103987041)
 <br>
 - 할인율과 원래가격: 51%  30,000   원
 - 가격: 209,350원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=136060428&traceid=V0-153&itemId=398832115&vendorItemId=70103987041){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=136060428&traceid=V0-153&itemId=398832115&vendorItemId=70103987041){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/eabb/77224dc01ba9ab7ad230f4ef3a6b40639412b202864d258c5d109da0a2af.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아메리칸투어리스터TREPPE PLUS 트레페 플러스 여행가방 5종 세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6217724395&traceid=V0-153&itemId=12426581883&vendorItemId=80941453275)
+[아메리칸투어리스터TREPPE PLUS 트레페 플러스 여행가방 5종 세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6217724395&traceid=V0-153&itemId=12426581883&vendorItemId=80941453275)
 <br>
 - 할인율과 원래가격: 54%  65,600   원
 - 가격: 191,200원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6217724395&traceid=V0-153&itemId=12426581883&vendorItemId=80941453275){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6217724395&traceid=V0-153&itemId=12426581883&vendorItemId=80941453275){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12d6/0660f6955cdf714e0a4bf4a1d08977258f7cb4634699fec83f6f050a34f3.JPG){: width="300" height="300" .w-50 .left}
 
 
-[디노 대형 하드 여행 캐리어 여행가방 28인치캐리어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7426194687&traceid=V0-153&itemId=19276935756&vendorItemId=86391998368)
+[디노 대형 하드 여행 캐리어 여행가방 28인치캐리어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7426194687&traceid=V0-153&itemId=19276935756&vendorItemId=86391998368)
 <br>
 - 할인율과 원래가격: 즉시할인가 44%  289,000   원
 - 가격: 99,900원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7426194687&traceid=V0-153&itemId=19276935756&vendorItemId=86391998368){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7426194687&traceid=V0-153&itemId=19276935756&vendorItemId=86391998368){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c941/4a0515920565ea6965e3f1216d8df90f9227e8d73be02a16a54e86d50fc9.jpg){: width="300" height="300" .w-50 .right}
 
 
-[스위스밀리터리 캐리어 26인치 20인치 여행용 캐리어 셋트 대형 기내 캐리어 SMC92SET 5종 SET](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6258321351&traceid=V0-153&itemId=12727856676&vendorItemId=79994455221)
+[스위스밀리터리 캐리어 26인치 20인치 여행용 캐리어 셋트 대형 기내 캐리어 SMC92SET 5종 SET](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6258321351&traceid=V0-153&itemId=12727856676&vendorItemId=79994455221)
 <br>
 - 할인율과 원래가격: 5%  330,000   원
 - 가격: 318,000원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6258321351&traceid=V0-153&itemId=12727856676&vendorItemId=79994455221){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6258321351&traceid=V0-153&itemId=12727856676&vendorItemId=79994455221){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e1e6/20d223e88f30368e74ad7633364f74c46a6fd23ca829fc7870f2c2f12052.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아메리칸투어리스터 ELLEN 캐리어 6825 TSA GREY DO808002](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=314319556&traceid=V0-153&itemId=996383587&vendorItemId=73637057528)
+[아메리칸투어리스터 ELLEN 캐리어 6825 TSA GREY DO808002](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=314319556&traceid=V0-153&itemId=996383587&vendorItemId=73637057528)
 <br>
 - 할인율과 원래가격: 즉시할인가 36%  23,900   원
 - 가격: 140,000원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=314319556&traceid=V0-153&itemId=996383587&vendorItemId=73637057528){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=314319556&traceid=V0-153&itemId=996383587&vendorItemId=73637057528){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b253/3816ca054d5a5bd3926e685ee188c73593eb089af23b3c8649ca8ab43753.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아메리칸투어리스터 ELLEN 캐리어 7929 TSA DARK GREEN DO824003](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7234886610&traceid=V0-153&itemId=18367895756&vendorItemId=85512680924)
+[아메리칸투어리스터 ELLEN 캐리어 7929 TSA DARK GREEN DO824003](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7234886610&traceid=V0-153&itemId=18367895756&vendorItemId=85512680924)
 <br>
 - 할인율과 원래가격: 42%  18,900   원
 - 가격: 156,600원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7234886610&traceid=V0-153&itemId=18367895756&vendorItemId=85512680924){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7234886610&traceid=V0-153&itemId=18367895756&vendorItemId=85512680924){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a5ad/7e663697edce0999c6bc2ff29b0bf3b29d3995d70e3c599b905bd0ceb4a7.jpg){: width="300" height="300" .w-50 .left}
 
 
-[하드 캐리어 바퀴 달린 핸드백 롤링 여성용 트롤리 여행 패션 20 24 26 28](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7541660451&traceid=V0-153&itemId=19827430042&vendorItemId=86929288301)
+[하드 캐리어 바퀴 달린 핸드백 롤링 여성용 트롤리 여행 패션 20 24 26 28](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7541660451&traceid=V0-153&itemId=19827430042&vendorItemId=86929288301)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 102,410원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7541660451&traceid=V0-153&itemId=19827430042&vendorItemId=86929288301){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7541660451&traceid=V0-153&itemId=19827430042&vendorItemId=86929288301){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![아메리칸투어리스터캐리어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0dac/8a035ceaad29ec80c0c29480eda7a58f34b632cf7a80497bd2c51d7617f6.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아메리칸투어리스터 ELLEN 캐리어 5520 TSA GREY DO808001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=139016115&traceid=V0-153&itemId=406089051&vendorItemId=86157010470)
+[아메리칸투어리스터 ELLEN 캐리어 5520 TSA GREY DO808001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=139016115&traceid=V0-153&itemId=406089051&vendorItemId=86157010470)
 <br>
 - 할인율과 원래가격: 43%  22,800   원
 - 가격: 116,100원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=139016115&traceid=V0-153&itemId=406089051&vendorItemId=86157010470){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=139016115&traceid=V0-153&itemId=406089051&vendorItemId=86157010470){: .left}
 <br>
 <br>
 

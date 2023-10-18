@@ -13,7 +13,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4693410725581950-368cac58-5358-43e0-ab5b-36f9bc273acf.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350)
+[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350)
 <br>
 - 할인율과 원래가격: 
 - 가격: 32,250원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=11154337&vendorItemId=3016793350){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5996936105089987-72ab2308-dd81-4f0e-b013-5e0d9c8680b3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 브라운](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=1069082518&vendorItemId=5556736941)
+[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 브라운](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=1069082518&vendorItemId=5556736941)
 <br>
 - 할인율과 원래가격: 
 - 가격: 32,250원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=1069082518&vendorItemId=5556736941){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=1069082518&vendorItemId=5556736941){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/18c6/384b93c03f2548ebe77995873f5bef7011ed11a7fbdea3886127427ac179.jpg){: width="300" height="300" .w-50 .left}
 
 
-[라비베베 올인원 아기의자 식탁 하이체어 이유식 식당 의자 부스터 올인원 하이체어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7115894978&traceid=V0-153&itemId=17803160547&vendorItemId=84979069470)
+[라비베베 올인원 아기의자 식탁 하이체어 이유식 식당 의자 부스터 올인원 하이체어](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7115894978&traceid=V0-153&itemId=17803160547&vendorItemId=84979069470)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 36,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7115894978&traceid=V0-153&itemId=17803160547&vendorItemId=84979069470){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7115894978&traceid=V0-153&itemId=17803160547&vendorItemId=84979069470){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/be1f/0cc3bfff52f75025966ac49f6b4fdcc9c4dd23ef23c42a0a6b2de52c2c07.jpg){: width="300" height="300" .w-50 .right}
 
 
-[베이비캠프 유아용 접이식 원목식탁의자 vi02 원목색](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=12427047&traceid=V0-153&itemId=52808132&vendorItemId=3082444219)
+[베이비캠프 유아용 접이식 원목식탁의자 vi02 원목색](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=12427047&traceid=V0-153&itemId=52808132&vendorItemId=3082444219)
 <br>
 - 할인율과 원래가격: 
 - 가격: 75,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=12427047&traceid=V0-153&itemId=52808132&vendorItemId=3082444219){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=12427047&traceid=V0-153&itemId=52808132&vendorItemId=3082444219){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4e84/9c7b9572530ade913f9ccc2ea5e01402a002b8cdc80a1330e9ff27da9aa1.jpg){: width="300" height="300" .w-50 .left}
 
 
-[리틀클라우드 논슬립 아기 멀티 범보의자  탈착 트레이 피치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7440040044&traceid=V0-153&itemId=19344538982&vendorItemId=86459974622)
+[리틀클라우드 논슬립 아기 멀티 범보의자  탈착 트레이 피치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7440040044&traceid=V0-153&itemId=19344538982&vendorItemId=86459974622)
 <br>
 - 할인율과 원래가격: 
 - 가격: 57,750원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7440040044&traceid=V0-153&itemId=19344538982&vendorItemId=86459974622){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7440040044&traceid=V0-153&itemId=19344538982&vendorItemId=86459974622){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/01/29/16/8/8151ac56-b00a-4bd9-a227-be6ef6277757.jpg){: width="300" height="300" .w-50 .right}
 
 
-[베이블퓨어리 NEW 베이비 유아하이체어 아이보리](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4899552170&traceid=V0-153&itemId=6390944008&vendorItemId=73685920852)
+[베이블퓨어리 NEW 베이비 유아하이체어 아이보리](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4899552170&traceid=V0-153&itemId=6390944008&vendorItemId=73685920852)
 <br>
 - 할인율과 원래가격: 
 - 가격: 99,280원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4899552170&traceid=V0-153&itemId=6390944008&vendorItemId=73685920852){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4899552170&traceid=V0-153&itemId=6390944008&vendorItemId=73685920852){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5996865438219644-e018f519-9784-4a74-8347-130659331f47.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 핑크](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=1069082525&vendorItemId=5556736971)
+[마켓비 SIGTAG 유아식탁의자  SIGTAG 유아트레이 하이체어 세트 핑크](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=1069082525&vendorItemId=5556736971)
 <br>
 - 할인율과 원래가격: 
 - 가격: 32,250원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2423337&traceid=V0-153&itemId=1069082525&vendorItemId=5556736971){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2423337&traceid=V0-153&itemId=1069082525&vendorItemId=5556736971){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/06/24/3042113378/b22f9660-d3e6-4bef-9960-ca8e01cb551a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아가드 유아용 아이슬라이드 하이체어 베이지](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378)
+[아가드 유아용 아이슬라이드 하이체어 베이지](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,000원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6321594&traceid=V0-153&itemId=28232251&vendorItemId=3042113378){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/01/29/16/5/6242f448-d805-46aa-982d-3c57ba531745.jpg){: width="300" height="300" .w-50 .left}
 
 
-[베이블퓨어리 NEW 베이비 유아하이체어 라이트그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4899552170&traceid=V0-153&itemId=6390944004&vendorItemId=73685920849)
+[베이블퓨어리 NEW 베이비 유아하이체어 라이트그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4899552170&traceid=V0-153&itemId=6390944004&vendorItemId=73685920849)
 <br>
 - 할인율과 원래가격: 
 - 가격: 99,280원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4899552170&traceid=V0-153&itemId=6390944004&vendorItemId=73685920849){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4899552170&traceid=V0-153&itemId=6390944004&vendorItemId=73685920849){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![아기식탁의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/9857271853442-113b7ab4-2da1-44c4-9bc6-84388c58b3f8.jpg){: width="300" height="300" .w-50 .right}
 
 
-[톨스토이 티파니 부스터 겸용 하이체어 그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=166901642&traceid=V0-153&itemId=1019832907&vendorItemId=5485062027)
+[톨스토이 티파니 부스터 겸용 하이체어 그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=166901642&traceid=V0-153&itemId=1019832907&vendorItemId=5485062027)
 <br>
 - 할인율과 원래가격: 
 - 가격: 59,800원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=166901642&traceid=V0-153&itemId=1019832907&vendorItemId=5485062027){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=166901642&traceid=V0-153&itemId=1019832907&vendorItemId=5485062027){: .left}
 <br>
 <br>
 

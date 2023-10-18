@@ -13,7 +13,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b333/989f655634d42d836f6fb8ef0edb9017400f6a0ce072a453405cc1034015.jpg){: width="300" height="300" .w-50 .left}
 
 
-[McGrawHill Education Algebra II Review and Workbook McGrawHill Education Algebr Monahan Christopher저McGra](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5914285570&traceid=V0-153&itemId=10463809260&vendorItemId=79891077130)
+[McGrawHill Education Algebra II Review and Workbook McGrawHill Education Algebr Monahan Christopher저McGra](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5914285570&traceid=V0-153&itemId=10463809260&vendorItemId=79891077130)
 <br>
 - 할인율과 원래가격: 
 - 가격: 12,500원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5914285570&traceid=V0-153&itemId=10463809260&vendorItemId=79891077130){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5914285570&traceid=V0-153&itemId=10463809260&vendorItemId=79891077130){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/images/2017/08/30/14/4/14a0cd5d-d277-475c-82b0-f9cfd8fa5af1.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Jane Eyre Penguin Classics Penguin Classic](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6714064299&traceid=V0-153&itemId=15596662501&vendorItemId=3131809053)
+[Jane Eyre Penguin Classics Penguin Classic](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6714064299&traceid=V0-153&itemId=15596662501&vendorItemId=3131809053)
 <br>
 - 할인율과 원래가격: 
 - 가격: 6,450원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6714064299&traceid=V0-153&itemId=15596662501&vendorItemId=3131809053){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6714064299&traceid=V0-153&itemId=15596662501&vendorItemId=3131809053){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2017/07/04/18/6/96265f9f-150f-4518-89f3-37dd7121fe70.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Stone Fox HarperTrophy](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=25923231&traceid=V0-153&itemId=100865613&vendorItemId=3186137479)
+[Stone Fox HarperTrophy](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25923231&traceid=V0-153&itemId=100865613&vendorItemId=3186137479)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 5,810원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=25923231&traceid=V0-153&itemId=100865613&vendorItemId=3186137479){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25923231&traceid=V0-153&itemId=100865613&vendorItemId=3186137479){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/394f/acb4e034a0050b859d5038c3fa4c060aa9172bea87889e2176650bff86d6.png){: width="300" height="300" .w-50 .right}
 
 
-[더퍼슨스 the Persons No4 브랜드 디렉터 Brand Director 미니수첩제공 편집부](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6617674454&traceid=V0-153&itemId=15032385913&vendorItemId=82254985895)
+[더퍼슨스 the Persons No4 브랜드 디렉터 Brand Director 미니수첩제공 편집부](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6617674454&traceid=V0-153&itemId=15032385913&vendorItemId=82254985895)
 <br>
 - 할인율과 원래가격: 
 - 가격: 16,200원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6617674454&traceid=V0-153&itemId=15032385913&vendorItemId=82254985895){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6617674454&traceid=V0-153&itemId=15032385913&vendorItemId=82254985895){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c93d/7008d77da057a219602a0213315ff9685e5e1e97aaf2e9caa5d6622d3ce0.png){: width="300" height="300" .w-50 .left}
 
 
-[Ramona Quimby Age 8  1982 뉴베리 아너 수상작  1982 Newbery Honor HarperTrophy](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7185992182&traceid=V0-153&itemId=18132981648&vendorItemId=3030411440)
+[Ramona Quimby Age 8  1982 뉴베리 아너 수상작  1982 Newbery Honor HarperTrophy](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7185992182&traceid=V0-153&itemId=18132981648&vendorItemId=3030411440)
 <br>
 - 할인율과 원래가격: 
 - 가격: 6,100원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7185992182&traceid=V0-153&itemId=18132981648&vendorItemId=3030411440){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7185992182&traceid=V0-153&itemId=18132981648&vendorItemId=3030411440){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9c39/38f5c791ae961bd06a94656bead84fb223ec9bd0d000be436957a4c43b7f.png){: width="300" height="300" .w-50 .right}
 
 
-[Warriors Box Set Volumes 1 to 6 The Complete First Series  The Complete First Series HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=59647080&traceid=V0-153&itemId=205530994&vendorItemId=3030358636)
+[Warriors Box Set Volumes 1 to 6 The Complete First Series  The Complete First Series HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=59647080&traceid=V0-153&itemId=205530994&vendorItemId=3030358636)
 <br>
 - 할인율과 원래가격: 
 - 가격: 45,560원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=59647080&traceid=V0-153&itemId=205530994&vendorItemId=3030358636){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=59647080&traceid=V0-153&itemId=205530994&vendorItemId=3030358636){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/05/20/13/1/bc02a34d-80af-4260-9735-9a129bbf281f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Warriors The Ultimate GuideThe Ultimate Guide HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1606293557&traceid=V0-153&itemId=2743469585&vendorItemId=70733479118)
+[Warriors The Ultimate GuideThe Ultimate Guide HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1606293557&traceid=V0-153&itemId=2743469585&vendorItemId=70733479118)
 <br>
 - 할인율과 원래가격: 
 - 가격: 19,120원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1606293557&traceid=V0-153&itemId=2743469585&vendorItemId=70733479118){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1606293557&traceid=V0-153&itemId=2743469585&vendorItemId=70733479118){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4a9e/0749daddf6a06deb31a3524baf5cf5d41b46af5b5f99d82d338776c5e53f.jpg){: width="300" height="300" .w-50 .right}
 
 
-[영문도서 How to Make Money with Chatgpt Profit with ChatGPT A StepbyStep Guide Paperback Independently Published English 9798372694286](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7052063843&traceid=V0-153&itemId=17464002507&vendorItemId=84631777714)
+[영문도서 How to Make Money with Chatgpt Profit with ChatGPT A StepbyStep Guide Paperback Independently Published English 9798372694286](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7052063843&traceid=V0-153&itemId=17464002507&vendorItemId=84631777714)
 <br>
 - 할인율과 원래가격: 
 - 가격: 11,700원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7052063843&traceid=V0-153&itemId=17464002507&vendorItemId=84631777714){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7052063843&traceid=V0-153&itemId=17464002507&vendorItemId=84631777714){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/trpoej6z/a0857ecc4e5948eda9f7cba4bd33c571.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Warriors A Vision of Shadows 016 전6권 HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5026584596&traceid=V0-153&itemId=6745949982&vendorItemId=74038832663)
+[Warriors A Vision of Shadows 016 전6권 HarperCollins](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5026584596&traceid=V0-153&itemId=6745949982&vendorItemId=74038832663)
 <br>
 - 할인율과 원래가격: 
 - 가격: 43,680원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5026584596&traceid=V0-153&itemId=6745949982&vendorItemId=74038832663){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5026584596&traceid=V0-153&itemId=6745949982&vendorItemId=74038832663){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![디디에두보면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4974/e7e89f80333a01af9473bf98d382d53efa67b3fc260e88d2b02459974050.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Were Going on a Bear Hunt30th Anniversary Edition Margaret K McElderry Books](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6748547386&traceid=V0-153&itemId=15775611284&vendorItemId=71615737618)
+[Were Going on a Bear Hunt30th Anniversary Edition Margaret K McElderry Books](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6748547386&traceid=V0-153&itemId=15775611284&vendorItemId=71615737618)
 <br>
 - 할인율과 원래가격: 
 - 가격: 8,370원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6748547386&traceid=V0-153&itemId=15775611284&vendorItemId=71615737618){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6748547386&traceid=V0-153&itemId=15775611284&vendorItemId=71615737618){: .left}
 <br>
 <br>
 
