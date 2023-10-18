@@ -13,7 +13,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f08f/0d031af213aa3c3a2da446e8607a170bd0b125926a6a2d53bbb63c88343d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[세인트제임스 본사정품 Bon Bon Elbow Patches 001 ASJU233KR74001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113)
+[세인트제임스 본사정품 Bon Bon Elbow Patches 001 ASJU233KR74001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 178,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544297712&traceid=V0-153&itemId=19839695571&vendorItemId=86941253113){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce56/435d31aa4d4f1ad7a5eda8d14ceb1ba7af36119de9132b38dc78d6d914c5.jpg){: width="300" height="300" .w-50 .right}
 
 
-[세인트제임스 본사정품 Bon Bon Elbow Patches OTM ASJU233KR74OTM](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356)
+[세인트제임스 본사정품 Bon Bon Elbow Patches OTM ASJU233KR74OTM](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 178,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7540110905&traceid=V0-153&itemId=19819168810&vendorItemId=86941116356){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2382/2eb3ad95960265d286072acfd93d2208d631ffdd7c2dc722dba6c7341011.jpg){: width="300" height="300" .w-50 .left}
 
 
-[비버리힐즈 폴로클럽 시그니처 오버핏 기모 맨투맨 BP1018](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6801800605&traceid=V0-153&itemId=16058392249&vendorItemId=83261758542)
+[비버리힐즈 폴로클럽 시그니처 오버핏 기모 맨투맨 BP1018](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6801800605&traceid=V0-153&itemId=16058392249&vendorItemId=83261758542)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 39,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6801800605&traceid=V0-153&itemId=16058392249&vendorItemId=83261758542){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6801800605&traceid=V0-153&itemId=16058392249&vendorItemId=83261758542){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5bb2/1105b19c6c0d734156c00510eabf177ecb0622c061f615bf59882289ae4d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[세인트제임스 본사정품 Guildo Elbow Patch 050 ASJU2311388050](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7225285955&traceid=V0-153&itemId=18320101547&vendorItemId=85566899994)
+[세인트제임스 본사정품 Guildo Elbow Patch 050 ASJU2311388050](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7225285955&traceid=V0-153&itemId=18320101547&vendorItemId=85566899994)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 131,100원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7225285955&traceid=V0-153&itemId=18320101547&vendorItemId=85566899994){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7225285955&traceid=V0-153&itemId=18320101547&vendorItemId=85566899994){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/95db/d5f2867d2ce96cf4ca64ba5b2eb43c0dce972ac7fb81a29f24e931ec6361.png){: width="300" height="300" .w-50 .left}
 
 
-[주말특가 내셔널 와펜 스몰로고 남여공용 반팔티](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7395427458&traceid=V0-153&itemId=19196893641&vendorItemId=87221289939)
+[주말특가 내셔널 와펜 스몰로고 남여공용 반팔티](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7395427458&traceid=V0-153&itemId=19196893641&vendorItemId=87221289939)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 36,790원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7395427458&traceid=V0-153&itemId=19196893641&vendorItemId=87221289939){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7395427458&traceid=V0-153&itemId=19196893641&vendorItemId=87221289939){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/images/2018/01/18/0/8/5da05c4d-5062-46d2-a4ae-49fc1057f73f.jpg){: width="300" height="300" .w-50 .right}
 
 
-[디프엠 긴팔 워킹맨 남녀공용 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=61011933&traceid=V0-153&itemId=209197793&vendorItemId=3495893955)
+[디프엠 긴팔 워킹맨 남녀공용 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=61011933&traceid=V0-153&itemId=209197793&vendorItemId=3495893955)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 11,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=61011933&traceid=V0-153&itemId=209197793&vendorItemId=3495893955){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=61011933&traceid=V0-153&itemId=209197793&vendorItemId=3495893955){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6e70/ab312b55f297b5063e542adbfd09147198f3ec23841854422ffc802b5551.jpg){: width="300" height="300" .w-50 .left}
 
 
-[세인트제임스 본사정품 Bon Bon Elbow Patches 016 ASJU233KR74016](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123)
+[세인트제임스 본사정품 Bon Bon Elbow Patches 016 ASJU233KR74016](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 178,000원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7515217548&traceid=V0-153&itemId=19699993346&vendorItemId=86941155123){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8816/30dbd135c2878bfda1e1bc288b89e8fe1b4bf1d76efe23ff44901b7532e5.jpg){: width="300" height="300" .w-50 .right}
 
 
-[세인트제임스 본사정품 Vaujany 0Z2 ASJF22314670Z2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544218753&traceid=V0-153&itemId=19839334388&vendorItemId=86940900451)
+[세인트제임스 본사정품 Vaujany 0Z2 ASJF22314670Z2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544218753&traceid=V0-153&itemId=19839334388&vendorItemId=86940900451)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 158,000원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544218753&traceid=V0-153&itemId=19839334388&vendorItemId=86940900451){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544218753&traceid=V0-153&itemId=19839334388&vendorItemId=86940900451){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9410/959e5861aba78287e32effb78270c7f31ae1babe2dc68ecae9334e3df397.jpg){: width="300" height="300" .w-50 .left}
 
 
-[RTXSPORTS 11 남여공용 무지 라운드 반팔티 2030수 면티 레이어드 커플 베이직 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7508171483&traceid=V0-153&itemId=19667623680&vendorItemId=86556776908)
+[RTXSPORTS 11 남여공용 무지 라운드 반팔티 2030수 면티 레이어드 커플 베이직 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7508171483&traceid=V0-153&itemId=19667623680&vendorItemId=86556776908)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 9,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7508171483&traceid=V0-153&itemId=19667623680&vendorItemId=86556776908){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7508171483&traceid=V0-153&itemId=19667623680&vendorItemId=86556776908){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![세인트제임스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/075f/70bfe83fad5161cb59178c94f2172497e5836e8e5dddca8f1ffbdc76cfbe.jpg){: width="300" height="300" .w-50 .right}
 
 
-[세인트제임스 GUILDO U AECRU 남녀공용 티셔츠 커플티 데일리룩](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495)
+[세인트제임스 GUILDO U AECRU 남녀공용 티셔츠 커플티 데일리룩](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 89,400원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7144198995&traceid=V0-153&itemId=17946678258&vendorItemId=85104466495){: .left}
 <br>
 <br>
 

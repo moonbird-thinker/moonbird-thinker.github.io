@@ -13,7 +13,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/18f6/8657e395d8d3f2727a170886afa2b45d56a7b11dc09fbfd4f3750e92a2ad.jpg){: width="300" height="300" .w-50 .left}
 
 
-[23SS DPLEATS 네이비 스카프장식 긴팔티셔츠 DLTS3BP36N1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7265247947&traceid=V0-153&itemId=18515367594&vendorItemId=85654189770)
+[23SS DPLEATS 네이비 스카프장식 긴팔티셔츠 DLTS3BP36N1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7265247947&traceid=V0-153&itemId=18515367594&vendorItemId=85654189770)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 173,610원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7265247947&traceid=V0-153&itemId=18515367594&vendorItemId=85654189770){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7265247947&traceid=V0-153&itemId=18515367594&vendorItemId=85654189770){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aaa5/09d8563ceb56c25b09014c8914ac2ba3584e5af6b50cf1c59e5c15a210bc.png){: width="300" height="300" .w-50 .right}
 
 
-[닥스 블랙 DD로고 사각형 탑지퍼 소가죽 정장 캐쥬얼 직장인 회사원 대학생 여성크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6751447635&traceid=V0-153&itemId=15790880453&vendorItemId=83541294706)
+[닥스 블랙 DD로고 사각형 탑지퍼 소가죽 정장 캐쥬얼 직장인 회사원 대학생 여성크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6751447635&traceid=V0-153&itemId=15790880453&vendorItemId=83541294706)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 287,400원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6751447635&traceid=V0-153&itemId=15790880453&vendorItemId=83541294706){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6751447635&traceid=V0-153&itemId=15790880453&vendorItemId=83541294706){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bc77/03c39a995c8b28cce0e749a0684d935b3052fabc59853c3c0052da44d0fb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[닥스 브라운 체크 가죽테슬 참장식 상견례 결혼식 정장 직장인 회사원 여성 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6308379381&traceid=V0-153&itemId=13080373780&vendorItemId=83418585961)
+[닥스 브라운 체크 가죽테슬 참장식 상견례 결혼식 정장 직장인 회사원 여성 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6308379381&traceid=V0-153&itemId=13080373780&vendorItemId=83418585961)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 239,290원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6308379381&traceid=V0-153&itemId=13080373780&vendorItemId=83418585961){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6308379381&traceid=V0-153&itemId=13080373780&vendorItemId=83418585961){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9cce/974a905efb3dca7450235a6a8322d36ee5c9f7782e5f7563d8a399cc97bc.JPG){: width="300" height="300" .w-50 .right}
 
 
-[닥스 블랙 태슬참장식 소가죽 사계절 여성 사각형 카메라스타일 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6945798122&traceid=V0-153&itemId=16857793556&vendorItemId=85958601827)
+[닥스 블랙 태슬참장식 소가죽 사계절 여성 사각형 카메라스타일 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6945798122&traceid=V0-153&itemId=16857793556&vendorItemId=85958601827)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 265,490원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6945798122&traceid=V0-153&itemId=16857793556&vendorItemId=85958601827){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6945798122&traceid=V0-153&itemId=16857793556&vendorItemId=85958601827){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5d48/c7d447844f27748fde2d72e73605e945615bd784fa8b896d6197cde4935b.jpg){: width="300" height="300" .w-50 .left}
 
 
-[23SS 여름가방추천DAKS SUMMER HOLIDAYS 베이지 DD로고 라피아 숄더백 DCBA3E993I2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7400277647&traceid=V0-153&itemId=19152832401&vendorItemId=86156947035)
+[23SS 여름가방추천DAKS SUMMER HOLIDAYS 베이지 DD로고 라피아 숄더백 DCBA3E993I2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7400277647&traceid=V0-153&itemId=19152832401&vendorItemId=86156947035)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 268,200원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7400277647&traceid=V0-153&itemId=19152832401&vendorItemId=86156947035){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7400277647&traceid=V0-153&itemId=19152832401&vendorItemId=86156947035){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5c29/82c7b184d891932e4a5e2a059130b762971e026e11c3bb75ef3699e7de14.jpg){: width="300" height="300" .w-50 .right}
 
 
-[RURU 마켓 데일리 피부톤업 톤업 크림 면세점 핫딜 50g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7529067914&traceid=V0-153&itemId=19764011876&vendorItemId=86867188879)
+[RURU 마켓 데일리 피부톤업 톤업 크림 면세점 핫딜 50g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7529067914&traceid=V0-153&itemId=19764011876&vendorItemId=86867188879)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 22,600원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7529067914&traceid=V0-153&itemId=19764011876&vendorItemId=86867188879){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7529067914&traceid=V0-153&itemId=19764011876&vendorItemId=86867188879){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f7c6/40cad14891754d65d1a8245cd1e0677164dd08c4648619fdc3fa9eb58634.jpg){: width="300" height="300" .w-50 .left}
 
 
-[닥스정품 닥스 블랙 하우스 체크 경량 미니 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7172224774&traceid=V0-153&itemId=18072120362&vendorItemId=85201847803)
+[닥스정품 닥스 블랙 하우스 체크 경량 미니 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7172224774&traceid=V0-153&itemId=18072120362&vendorItemId=85201847803)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 109,900원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7172224774&traceid=V0-153&itemId=18072120362&vendorItemId=85201847803){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7172224774&traceid=V0-153&itemId=18072120362&vendorItemId=85201847803){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ab47/7e09b453b993a8d28e480f6042aaae90a84e58eaf464112fbd33a25a90ff.jpg){: width="300" height="300" .w-50 .right}
 
 
-[닥스정품 여성 클래식 체크 미니 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=85149663063)
+[닥스정품 여성 클래식 체크 미니 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=85149663063)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 110,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=85149663063){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=85149663063){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5225/d060cb06d124f0be41a47d646bc9d0d4f24cdd0987f9996c84d2aaf342eb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[메디톨드 연구소 악시 크림 AACI cream 1개 20ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7470671262&traceid=V0-153&itemId=19493049972&vendorItemId=86602702066)
+[메디톨드 연구소 악시 크림 AACI cream 1개 20ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7470671262&traceid=V0-153&itemId=19493049972&vendorItemId=86602702066)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 45,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7470671262&traceid=V0-153&itemId=19493049972&vendorItemId=86602702066){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7470671262&traceid=V0-153&itemId=19493049972&vendorItemId=86602702066){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![닥스면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/24/14/3/1255fbd2-f4ec-499b-b35a-5bacb5f51cb4.jpg){: width="300" height="300" .w-50 .right}
 
 
-[닥스 HERITAGE CODE CLASSIC 참장식 가죽 토트백 DCBA1E909I3](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5728394562&traceid=V0-153&itemId=9603852412&vendorItemId=76888353791)
+[닥스 HERITAGE CODE CLASSIC 참장식 가죽 토트백 DCBA1E909I3](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5728394562&traceid=V0-153&itemId=9603852412&vendorItemId=76888353791)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 299,600원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5728394562&traceid=V0-153&itemId=9603852412&vendorItemId=76888353791){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5728394562&traceid=V0-153&itemId=9603852412&vendorItemId=76888353791){: .left}
 <br>
 <br>
 

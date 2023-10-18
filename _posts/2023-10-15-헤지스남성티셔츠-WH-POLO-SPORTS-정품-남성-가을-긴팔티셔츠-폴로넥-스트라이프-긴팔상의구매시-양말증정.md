@@ -13,7 +13,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/79db/032e1efc9c61490da5d40dcfc7969dd76a638ff6a7c9de16ef4238d0c8ba.jpg){: width="300" height="300" .w-50 .left}
 
 
-[WH POLO SPORTS 정품 남성 가을 긴팔티셔츠 폴로넥 스트라이프 긴팔상의구매시 양말증정](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544380008&traceid=V0-153&itemId=19840109974&vendorItemId=86941656620)
+[WH POLO SPORTS 정품 남성 가을 긴팔티셔츠 폴로넥 스트라이프 긴팔상의구매시 양말증정](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544380008&traceid=V0-153&itemId=19840109974&vendorItemId=86941656620)
 <br>
 - 할인율과 원래가격: 49%  69,000   원
 - 가격: 47,200원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7544380008&traceid=V0-153&itemId=19840109974&vendorItemId=86941656620){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7544380008&traceid=V0-153&itemId=19840109974&vendorItemId=86941656620){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/07/12/8/151713ec-c87a-4e57-852b-12f9357142b3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[헤지스 남성용 히든플라켓 긴팔 피케 카라 티셔츠 HZTS3F301](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7517659542&traceid=V0-153&itemId=19702632536&vendorItemId=86807302028)
+[헤지스 남성용 히든플라켓 긴팔 피케 카라 티셔츠 HZTS3F301](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7517659542&traceid=V0-153&itemId=19702632536&vendorItemId=86807302028)
 <br>
 - 할인율과 원래가격: 즉시할인가 52%  71,900   원
 - 가격: 144,490원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7517659542&traceid=V0-153&itemId=19702632536&vendorItemId=86807302028){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7517659542&traceid=V0-153&itemId=19702632536&vendorItemId=86807302028){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/24/15/6/9588efdf-a069-4210-afd5-0f921fc10607.jpg){: width="300" height="300" .w-50 .left}
 
 
-[헤지스 남성용 인터록 소재 솔리드 카라 긴팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6865680498&traceid=V0-153&itemId=16409217738&vendorItemId=83600274031)
+[헤지스 남성용 인터록 소재 솔리드 카라 긴팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6865680498&traceid=V0-153&itemId=16409217738&vendorItemId=83600274031)
 <br>
 - 할인율과 원래가격: 11%  43,500   원
 - 가격: 99,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6865680498&traceid=V0-153&itemId=16409217738&vendorItemId=83600274031){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6865680498&traceid=V0-153&itemId=16409217738&vendorItemId=83600274031){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5d66/f76cf6ad93381e223eb5ab9bfbd93a8a0b7e0ffb5041ad9f2846ba75abd3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[국내매장판 헤지스 22FWpopulet그레이 컬러블록 면 긴팔티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7597446053&traceid=V0-153&itemId=20089737170&vendorItemId=87185123691)
+[국내매장판 헤지스 22FWpopulet그레이 컬러블록 면 긴팔티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7597446053&traceid=V0-153&itemId=20089737170&vendorItemId=87185123691)
 <br>
 - 할인율과 원래가격: 24%  52,610   원
 - 가격: 118,310원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7597446053&traceid=V0-153&itemId=20089737170&vendorItemId=87185123691){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7597446053&traceid=V0-153&itemId=20089737170&vendorItemId=87185123691){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ee04/2b20ac80737711cd9cf36087885fc496f24d6b485951bfca6e1e69f7100b.jpg){: width="300" height="300" .w-50 .left}
 
 
-[COMIRST비즈니스 남성 배색 카라 긴팔티셔츠셔츠골프남성](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7543828903&traceid=V0-153&itemId=19837633445&vendorItemId=86939238769)
+[COMIRST비즈니스 남성 배색 카라 긴팔티셔츠셔츠골프남성](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7543828903&traceid=V0-153&itemId=19837633445&vendorItemId=86939238769)
 <br>
 - 할인율과 원래가격: 69%  98,000   원
 - 가격: 28,600원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7543828903&traceid=V0-153&itemId=19837633445&vendorItemId=86939238769){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7543828903&traceid=V0-153&itemId=19837633445&vendorItemId=86939238769){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4f53/aeded74b40fb3372b3d204ec9e7702e6ae7f9832dd81b794e2ce1c7677e9.jpg){: width="300" height="300" .w-50 .right}
 
 
-[비버리힐즈 폴로클럽 클래식 긴팔 카라 티셔츠 남자 여자 커플 PK BP1016](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6789908067&traceid=V0-153&itemId=15994470307&vendorItemId=83199823219)
+[비버리힐즈 폴로클럽 클래식 긴팔 카라 티셔츠 남자 여자 커플 PK BP1016](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6789908067&traceid=V0-153&itemId=15994470307&vendorItemId=83199823219)
 <br>
 - 할인율과 원래가격: 35%  24,800   원
 - 가격: 35,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6789908067&traceid=V0-153&itemId=15994470307&vendorItemId=83199823219){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6789908067&traceid=V0-153&itemId=15994470307&vendorItemId=83199823219){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/28/9/3/9fb1ec12-cd93-4aad-8c1f-20c6080d454d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[헤지스 남성용 긴팔 블록 피케 카라티 HZTS3D532](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7573300028&traceid=V0-153&itemId=19977055802&vendorItemId=87006944519)
+[헤지스 남성용 긴팔 블록 피케 카라티 HZTS3D532](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7573300028&traceid=V0-153&itemId=19977055802&vendorItemId=87006944519)
 <br>
 - 할인율과 원래가격: 36%  68,860   원
 - 가격: 172,060원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7573300028&traceid=V0-153&itemId=19977055802&vendorItemId=87006944519){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7573300028&traceid=V0-153&itemId=19977055802&vendorItemId=87006944519){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/10/24/15/1/ab9d197b-1dbd-46cf-a5b9-717cfe1c8239.jpg){: width="300" height="300" .w-50 .right}
 
 
-[헤지스 남성용 다잉 헨리넥 긴팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6865680480&traceid=V0-153&itemId=16409217657&vendorItemId=83600273976)
+[헤지스 남성용 다잉 헨리넥 긴팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6865680480&traceid=V0-153&itemId=16409217657&vendorItemId=83600273976)
 <br>
 - 할인율과 원래가격: 
 - 가격: 76,110원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6865680480&traceid=V0-153&itemId=16409217657&vendorItemId=83600273976){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6865680480&traceid=V0-153&itemId=16409217657&vendorItemId=83600273976){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d29b/d0ce328327be3448c5ce29cfdaec198cac8b654477ba226a608bfdb805fd.jpg){: width="300" height="300" .w-50 .left}
 
 
-[지프 스피릿 남성 긴팔티 줄무늬 폴 셔츠 느슨한 슬림 핏 긴 소매 셔츠 카라넥 긴팔 코튼 티셔츠 빅사이즈 브랜드 정품 28170](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6765641271&traceid=V0-153&itemId=15869597425&vendorItemId=83079008439)
+[지프 스피릿 남성 긴팔티 줄무늬 폴 셔츠 느슨한 슬림 핏 긴 소매 셔츠 카라넥 긴팔 코튼 티셔츠 빅사이즈 브랜드 정품 28170](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6765641271&traceid=V0-153&itemId=15869597425&vendorItemId=83079008439)
 <br>
 - 할인율과 원래가격: 즉시할인가 48%  72,800   원
 - 가격: 47,600원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6765641271&traceid=V0-153&itemId=15869597425&vendorItemId=83079008439){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6765641271&traceid=V0-153&itemId=15869597425&vendorItemId=83079008439){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![헤지스남성티셔츠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/03/03/17/5/aaa26fe6-bed0-4f03-aec5-e3e80aa034cf.jpg){: width="300" height="300" .w-50 .right}
 
 
-[헤지스 남성용 포켓 배색 긴팔 자켓](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6373043759&traceid=V0-153&itemId=13507426499&vendorItemId=80761511570)
+[헤지스 남성용 포켓 배색 긴팔 자켓](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6373043759&traceid=V0-153&itemId=13507426499&vendorItemId=80761511570)
 <br>
 - 할인율과 원래가격: 58%  58,900   원
 - 가격: 137,420원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6373043759&traceid=V0-153&itemId=13507426499&vendorItemId=80761511570){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6373043759&traceid=V0-153&itemId=13507426499&vendorItemId=80761511570){: .left}
 <br>
 <br>
 

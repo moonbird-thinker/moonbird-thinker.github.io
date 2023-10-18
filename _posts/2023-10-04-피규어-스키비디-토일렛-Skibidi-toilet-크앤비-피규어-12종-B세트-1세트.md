@@ -13,7 +13,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d95b/60bfd4688b20995a03877fbda3e82811cb6aa122028ae3fa46d1721bf3c1.jpg){: width="300" height="300" .w-50 .left}
 
 
-[스키비디 토일렛 Skibidi toilet 크앤비 피규어 12종 B세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525559757&traceid=V0-153&itemId=19747072314&vendorItemId=86850651731)
+[스키비디 토일렛 Skibidi toilet 크앤비 피규어 12종 B세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525559757&traceid=V0-153&itemId=19747072314&vendorItemId=86850651731)
 <br>
 - 할인율과 원래가격: 
 - 가격: 28,400원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525559757&traceid=V0-153&itemId=19747072314&vendorItemId=86850651731){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525559757&traceid=V0-153&itemId=19747072314&vendorItemId=86850651731){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1743939707689211-c3253bf0-e83b-4d01-9f05-cf5ee383176e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[짱구는못말려 동물 피규어 2탄 6종 세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6760551859&traceid=V0-153&itemId=15843007478&vendorItemId=83054072789)
+[짱구는못말려 동물 피규어 2탄 6종 세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6760551859&traceid=V0-153&itemId=15843007478&vendorItemId=83054072789)
 <br>
 - 할인율과 원래가격: 
 - 가격: 21,830원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6760551859&traceid=V0-153&itemId=15843007478&vendorItemId=83054072789){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6760551859&traceid=V0-153&itemId=15843007478&vendorItemId=83054072789){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/09/10/14/0/6af568c7-6191-4e9d-a224-68c81e507533.jpg){: width="300" height="300" .w-50 .left}
 
 
-[두근두근 잔망 루피 피규어 6종 세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6075143448&traceid=V0-153&itemId=11234304549&vendorItemId=78511613810)
+[두근두근 잔망 루피 피규어 6종 세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6075143448&traceid=V0-153&itemId=11234304549&vendorItemId=78511613810)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 22,180원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6075143448&traceid=V0-153&itemId=11234304549&vendorItemId=78511613810){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6075143448&traceid=V0-153&itemId=11234304549&vendorItemId=78511613810){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/24/10/0/09f998ed-e4b0-47d8-b333-c713732bf0da.jpg){: width="300" height="300" .w-50 .right}
 
 
-[반다이남코 반프레스토 원피스 피규어 그랜드라인 저니 스페셜 B  보아 핸콕 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7550860253&traceid=V0-153&itemId=19871203930&vendorItemId=86971922655)
+[반다이남코 반프레스토 원피스 피규어 그랜드라인 저니 스페셜 B  보아 핸콕 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7550860253&traceid=V0-153&itemId=19871203930&vendorItemId=86971922655)
 <br>
 - 할인율과 원래가격: 
 - 가격: 24,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7550860253&traceid=V0-153&itemId=19871203930&vendorItemId=86971922655){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7550860253&traceid=V0-153&itemId=19871203930&vendorItemId=86971922655){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/660c/7734c7acba31ae99f31d54587f9ebf784b3aa5ed1af55700dc31f3d129fa.jpg){: width="300" height="300" .w-50 .left}
 
 
-[시나모롤 주말계획 9종 랜덤피규어 중 1종 DP 박스포함  인테리어 장식](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7232798427&traceid=V0-153&itemId=18357187651&vendorItemId=85501003715)
+[시나모롤 주말계획 9종 랜덤피규어 중 1종 DP 박스포함  인테리어 장식](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7232798427&traceid=V0-153&itemId=18357187651&vendorItemId=85501003715)
 <br>
 - 할인율과 원래가격: 
 - 가격: 16,500원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7232798427&traceid=V0-153&itemId=18357187651&vendorItemId=85501003715){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7232798427&traceid=V0-153&itemId=18357187651&vendorItemId=85501003715){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fd95/a39eec221c17cb3b950cd5934abf2f6d93aa05c0c7dc0f7ee120ea61a163.png){: width="300" height="300" .w-50 .right}
 
 
-[스키비디 토일렛 피규어 타이탄 TV맨 스피커맨 카메라맨 스키비디 토일렛 피규어 12종 SET 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7508406372&traceid=V0-153&itemId=19864211444&vendorItemId=86965082336)
+[스키비디 토일렛 피규어 타이탄 TV맨 스피커맨 카메라맨 스키비디 토일렛 피규어 12종 SET 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7508406372&traceid=V0-153&itemId=19864211444&vendorItemId=86965082336)
 <br>
 - 할인율과 원래가격: 
 - 가격: 19,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7508406372&traceid=V0-153&itemId=19864211444&vendorItemId=86965082336){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7508406372&traceid=V0-153&itemId=19864211444&vendorItemId=86965082336){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/02/20/11/6/7e7e8200-d947-4e9b-a456-199f6d62af24.jpg){: width="300" height="300" .w-50 .left}
 
 
-[ZDToys 대원 마블 마크85 에디션 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7149040996&traceid=V0-153&itemId=17969554510&vendorItemId=85126815294)
+[ZDToys 대원 마블 마크85 에디션 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7149040996&traceid=V0-153&itemId=17969554510&vendorItemId=85126815294)
 <br>
 - 할인율과 원래가격: 
 - 가격: 30,030원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7149040996&traceid=V0-153&itemId=17969554510&vendorItemId=85126815294){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7149040996&traceid=V0-153&itemId=17969554510&vendorItemId=85126815294){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/12/15/16/9/f0d791ce-892f-4315-9da1-e8b96f8ca560.jpg){: width="300" height="300" .w-50 .right}
 
 
-[대원미디어 마블 아이언맨 마크 42 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6237642411&traceid=V0-153&itemId=12571529448&vendorItemId=79839689575)
+[대원미디어 마블 아이언맨 마크 42 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6237642411&traceid=V0-153&itemId=12571529448&vendorItemId=79839689575)
 <br>
 - 할인율과 원래가격: 
 - 가격: 27,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6237642411&traceid=V0-153&itemId=12571529448&vendorItemId=79839689575){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6237642411&traceid=V0-153&itemId=12571529448&vendorItemId=79839689575){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/301b/a6364bf2febfd679197fd2d05a65f453403cb13fc8da7d6a293190ee3394.jpg){: width="300" height="300" .w-50 .left}
 
 
-[국내당일발송 고질라 킹오브몬스터 고질라 블랙 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7569793678&traceid=V0-153&itemId=19961004496&vendorItemId=86990688111)
+[국내당일발송 고질라 킹오브몬스터 고질라 블랙 피규어 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7569793678&traceid=V0-153&itemId=19961004496&vendorItemId=86990688111)
 <br>
 - 할인율과 원래가격: 
 - 가격: 27,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7569793678&traceid=V0-153&itemId=19961004496&vendorItemId=86990688111){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7569793678&traceid=V0-153&itemId=19961004496&vendorItemId=86990688111){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![피규어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2f0f/6aa45faa622cb4224e036807165e629c9eab3e2a04a0a02dd862c6bb5779.jpg){: width="300" height="300" .w-50 .right}
 
 
-[제이티제이 차량 홈 인테리어 피규어 인형 5종세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7391024213&traceid=V0-153&itemId=19108889811&vendorItemId=86282984675)
+[제이티제이 차량 홈 인테리어 피규어 인형 5종세트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7391024213&traceid=V0-153&itemId=19108889811&vendorItemId=86282984675)
 <br>
 - 할인율과 원래가격: 
 - 가격: 13,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7391024213&traceid=V0-153&itemId=19108889811&vendorItemId=86282984675){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7391024213&traceid=V0-153&itemId=19108889811&vendorItemId=86282984675){: .left}
 <br>
 <br>
 

@@ -13,7 +13,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/baed/4b69b9b150c591bc4aea375cac096a7c3f547da60fb289a055d1bb5203dd.jpg){: width="300" height="300" .w-50 .left}
 
 
-[MOSAIRATION 남성 숄더백 가벼운 소가죽가방 남성 서류가방 가죽가방 노트북가방 출장용가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7025235319&traceid=V0-153&itemId=17317947950&vendorItemId=85034269556)
+[MOSAIRATION 남성 숄더백 가벼운 소가죽가방 남성 서류가방 가죽가방 노트북가방 출장용가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7025235319&traceid=V0-153&itemId=17317947950&vendorItemId=85034269556)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 48,900원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7025235319&traceid=V0-153&itemId=17317947950&vendorItemId=85034269556){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7025235319&traceid=V0-153&itemId=17317947950&vendorItemId=85034269556){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/022b/47acea23e78767df2111a03accb4201dcf131251251d5a24cb6131090370.jpg){: width="300" height="300" .w-50 .right}
 
 
-[프라다 모노크롬백1BG414](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6469946457&traceid=V0-153&itemId=14118427858&vendorItemId=86715226191)
+[프라다 모노크롬백1BG414](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6469946457&traceid=V0-153&itemId=14118427858&vendorItemId=86715226191)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 1,539,400원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6469946457&traceid=V0-153&itemId=14118427858&vendorItemId=86715226191){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6469946457&traceid=V0-153&itemId=14118427858&vendorItemId=86715226191){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a918/23bf51d686fb0f5628e1faac3007d0c2216b6161d314701f872bd5601071.jpg){: width="300" height="300" .w-50 .left}
 
 
-[NIKE SB 테수토백 호보백 크로스백 스우시체인호보백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7474575225&traceid=V0-153&itemId=19510627473&vendorItemId=86619500516)
+[NIKE SB 테수토백 호보백 크로스백 스우시체인호보백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7474575225&traceid=V0-153&itemId=19510627473&vendorItemId=86619500516)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 63,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7474575225&traceid=V0-153&itemId=19510627473&vendorItemId=86619500516){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7474575225&traceid=V0-153&itemId=19510627473&vendorItemId=86619500516){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a153/91e81f6a391876ff5e967bbd8c94d67dd910ce9f6932e85a6b5b9ce31c4c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[ANYOU 패션 여성 체인 통근 숄더백 크로스백 가방 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894)
+[ANYOU 패션 여성 체인 통근 숄더백 크로스백 가방 토트백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 33,800원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7537025821&traceid=V0-153&itemId=19803915070&vendorItemId=86906202894){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f7ee/87bf2186015515c07cb76ff85782a60aed257e94c284bbda19dc1f79328f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[자석여밈 가벼운 나일론 스트링 주름 셔링 미니 보부상 토트백 귀여운 먼지몽키링이 달려있는](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7602027356&traceid=V0-153&itemId=20112319437&vendorItemId=87172882305)
+[자석여밈 가벼운 나일론 스트링 주름 셔링 미니 보부상 토트백 귀여운 먼지몽키링이 달려있는](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7602027356&traceid=V0-153&itemId=20112319437&vendorItemId=87172882305)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 17,900원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7602027356&traceid=V0-153&itemId=20112319437&vendorItemId=87172882305){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7602027356&traceid=V0-153&itemId=20112319437&vendorItemId=87172882305){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e743/c2bcb2d8b21ae8ea8a079cc4bc55f47447127ae60e5ed48e2911892777b9.png){: width="300" height="300" .w-50 .right}
 
 
-[블루벨복스 데일리 캐쥬얼 가벼운 나일론 블랙 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7570360157&traceid=V0-153&itemId=19963617947&vendorItemId=87038382175)
+[블루벨복스 데일리 캐쥬얼 가벼운 나일론 블랙 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7570360157&traceid=V0-153&itemId=19963617947&vendorItemId=87038382175)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 19,800원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7570360157&traceid=V0-153&itemId=19963617947&vendorItemId=87038382175){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7570360157&traceid=V0-153&itemId=19963617947&vendorItemId=87038382175){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/af46/b98e4fed8ded3cee1a0b70190f5bce9925c81ab71549a18639c2dd0ca0eb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[엔도르시 여성용 투콤보 멀티 스트랩 크로스백 EBA918](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6990589059&traceid=V0-153&itemId=17108291915&vendorItemId=73619850212)
+[엔도르시 여성용 투콤보 멀티 스트랩 크로스백 EBA918](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6990589059&traceid=V0-153&itemId=17108291915&vendorItemId=73619850212)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 16,800원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6990589059&traceid=V0-153&itemId=17108291915&vendorItemId=73619850212){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6990589059&traceid=V0-153&itemId=17108291915&vendorItemId=73619850212){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a7a9/c2a4988abe35a52dc11d080a5385b51c11efba87646bcc736d52f1ebd14e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[프라다 리에디션 리나일론 테수토 호보백 미니 이너백 백인백 가온백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7187833919&traceid=V0-153&itemId=18141591705&vendorItemId=85105628961)
+[프라다 리에디션 리나일론 테수토 호보백 미니 이너백 백인백 가온백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7187833919&traceid=V0-153&itemId=18141591705&vendorItemId=85105628961)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 12,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7187833919&traceid=V0-153&itemId=18141591705&vendorItemId=85105628961){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7187833919&traceid=V0-153&itemId=18141591705&vendorItemId=85105628961){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2b93/daaa59ba065cbffb07558b6b31a3f9a94894aa2afd54aeee75db0f5bcf98.jpg){: width="300" height="300" .w-50 .left}
 
 
-[이태리 수입 여성 가방 프리마클라쎄 웨이비 토트백 블랙 GO4795430001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312)
+[이태리 수입 여성 가방 프리마클라쎄 웨이비 토트백 블랙 GO4795430001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 219,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![프라다가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/images/2019/03/13/21/1/8a4d7747-567e-4a0b-bbac-836a1b065b64.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Dirome 가볍게 맬수있는 방수원단 가벼운 캐주얼 크로스끈 포함 여성 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=197453765&traceid=V0-153&itemId=569289448&vendorItemId=4494672940)
+[Dirome 가볍게 맬수있는 방수원단 가벼운 캐주얼 크로스끈 포함 여성 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=197453765&traceid=V0-153&itemId=569289448&vendorItemId=4494672940)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 28,500원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=197453765&traceid=V0-153&itemId=569289448&vendorItemId=4494672940){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=197453765&traceid=V0-153&itemId=569289448&vendorItemId=4494672940){: .left}
 <br>
 <br>
 

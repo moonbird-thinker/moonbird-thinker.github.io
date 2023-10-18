@@ -13,7 +13,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8cf0/d6bded75070b1a76b601fb791b439958b2ab555929394c8f2722620e285e.JPG){: width="300" height="300" .w-50 .left}
 
 
-[당일발송 Jeep buluo 남자 지프 가방 가벼운 여자 책 가방 스포츠 방수 백팩 성인 남녀공용 노트북 여행용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7457980392&traceid=V0-153&itemId=19432611133&vendorItemId=86543825702)
+[당일발송 Jeep buluo 남자 지프 가방 가벼운 여자 책 가방 스포츠 방수 백팩 성인 남녀공용 노트북 여행용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7457980392&traceid=V0-153&itemId=19432611133&vendorItemId=86543825702)
 <br>
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: 42,990원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7457980392&traceid=V0-153&itemId=19432611133&vendorItemId=86543825702){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7457980392&traceid=V0-153&itemId=19432611133&vendorItemId=86543825702){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7642/dab919c7e675869443c4e612fb4e4b183d41e37bbdc6493935b95b1d7d03.jpg){: width="300" height="300" .w-50 .right}
 
 
-[언더아머 언더아머공용 UA 컨테인 스몰 더플백팩 1361225 블랙001OSFAFREE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5602454035&traceid=V0-153&itemId=9026450831&vendorItemId=86987043229)
+[언더아머 언더아머공용 UA 컨테인 스몰 더플백팩 1361225 블랙001OSFAFREE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5602454035&traceid=V0-153&itemId=9026450831&vendorItemId=86987043229)
 <br>
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: 68,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5602454035&traceid=V0-153&itemId=9026450831&vendorItemId=86987043229){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5602454035&traceid=V0-153&itemId=9026450831&vendorItemId=86987043229){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f169/90e9db254f9eaccecb07078d36388a9a4146a82e66bd4af119607126375f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[언더아머 허슬 라이트 백팩 가방 1364180001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6012176755&traceid=V0-153&itemId=10909827913&vendorItemId=79297247856)
+[언더아머 허슬 라이트 백팩 가방 1364180001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6012176755&traceid=V0-153&itemId=10909827913&vendorItemId=79297247856)
 <br>
 - 할인율과 원래가격: 
 - 가격: 40,000원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6012176755&traceid=V0-153&itemId=10909827913&vendorItemId=79297247856){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6012176755&traceid=V0-153&itemId=10909827913&vendorItemId=79297247856){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/02/23/10/3/368df5f4-f140-4c6c-b6ed-842d74099667.jpg){: width="300" height="300" .w-50 .right}
 
 
-[언더아머 UA 가디언 20 백팩 1350089 Black001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6356990414&traceid=V0-153&itemId=13402275358&vendorItemId=80657010100)
+[언더아머 UA 가디언 20 백팩 1350089 Black001](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6356990414&traceid=V0-153&itemId=13402275358&vendorItemId=80657010100)
 <br>
 - 할인율과 원래가격: 
 - 가격: 73,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6356990414&traceid=V0-153&itemId=13402275358&vendorItemId=80657010100){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6356990414&traceid=V0-153&itemId=13402275358&vendorItemId=80657010100){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8bc2/9ed326466e3866845c5bb8be3823c88bd272aaa3b04671bc08444e81b1de.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마크라이든 테트라곤 더플백 헬스 스포츠 운동 가방 더블백 스포츠백 헬스장 운동복 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7241437546&traceid=V0-153&itemId=18400076135&vendorItemId=87229313230)
+[마크라이든 테트라곤 더플백 헬스 스포츠 운동 가방 더블백 스포츠백 헬스장 운동복 크로스백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7241437546&traceid=V0-153&itemId=18400076135&vendorItemId=87229313230)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 42,800원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7241437546&traceid=V0-153&itemId=18400076135&vendorItemId=87229313230){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7241437546&traceid=V0-153&itemId=18400076135&vendorItemId=87229313230){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/629b/8c43aec3472ea34b700580f6559ee3eb7328753f883184152306d8b4299a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[윈어블 대용량65L 헬스 유도 주짓수 백팩 크로스백 칸막이가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6497623018&traceid=V0-153&itemId=14291485077&vendorItemId=83740415700)
+[윈어블 대용량65L 헬스 유도 주짓수 백팩 크로스백 칸막이가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6497623018&traceid=V0-153&itemId=14291485077&vendorItemId=83740415700)
 <br>
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: 58,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6497623018&traceid=V0-153&itemId=14291485077&vendorItemId=83740415700){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6497623018&traceid=V0-153&itemId=14291485077&vendorItemId=83740415700){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6181/0eb06061d2605e08965aefb126d3d961e86d4fb4705af7cba6d8480dcd16.png){: width="300" height="300" .w-50 .left}
 
 
-[언더아머 백팩 스포츠 운동 보조 가방 남성 여성 학생 노트북 수납 1그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7435198483&traceid=V0-153&itemId=19320615595&vendorItemId=86434749452)
+[언더아머 백팩 스포츠 운동 보조 가방 남성 여성 학생 노트북 수납 1그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7435198483&traceid=V0-153&itemId=19320615595&vendorItemId=86434749452)
 <br>
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: 46,900원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7435198483&traceid=V0-153&itemId=19320615595&vendorItemId=86434749452){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7435198483&traceid=V0-153&itemId=19320615595&vendorItemId=86434749452){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8c33/be5264746f3c152ae2181b6cf871d7a489b48f6558207f770bf461f630c8.jpg){: width="300" height="300" .w-50 .right}
 
 
-[언더아머 본사UA 허슬 50 백팩 1361176004](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7101991628&traceid=V0-153&itemId=17730145302&vendorItemId=85169121438)
+[언더아머 본사UA 허슬 50 백팩 1361176004](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7101991628&traceid=V0-153&itemId=17730145302&vendorItemId=85169121438)
 <br>
 - 할인율과 원래가격: 55%  65,600   원
 - 가격: 39,500원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7101991628&traceid=V0-153&itemId=17730145302&vendorItemId=85169121438){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7101991628&traceid=V0-153&itemId=17730145302&vendorItemId=85169121438){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0efa/6eaf4a026b2283c77fd6e8b6de6a3e3a4e47d1bce27009c3a8081fa64739.jpg){: width="300" height="300" .w-50 .left}
 
 
-[헬스의세계 칸막이 대용량 헬스 운동 스포츠 보스턴 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7579772387&traceid=V0-153&itemId=20006386591&vendorItemId=86052237864)
+[헬스의세계 칸막이 대용량 헬스 운동 스포츠 보스턴 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7579772387&traceid=V0-153&itemId=20006386591&vendorItemId=86052237864)
 <br>
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: 29,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7579772387&traceid=V0-153&itemId=20006386591&vendorItemId=86052237864){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7579772387&traceid=V0-153&itemId=20006386591&vendorItemId=86052237864){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![언더아머백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c3fe/6142582d7bb361de0389663128be10cd8c7785bd183731ef6487190d426e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[언더아머 언더아머공용 UA 허슬 50 백팩 1361176 블랙001OSFAFREE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7581928852&traceid=V0-153&itemId=20016245375&vendorItemId=87160120081)
+[언더아머 언더아머공용 UA 허슬 50 백팩 1361176 블랙001OSFAFREE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7581928852&traceid=V0-153&itemId=20016245375&vendorItemId=87160120081)
 <br>
 - 할인율과 원래가격: 61%  56,900   원
 - 가격: 59,210원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7581928852&traceid=V0-153&itemId=20016245375&vendorItemId=87160120081){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7581928852&traceid=V0-153&itemId=20016245375&vendorItemId=87160120081){: .left}
 <br>
 <br>
 

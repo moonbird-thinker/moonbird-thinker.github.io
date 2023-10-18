@@ -13,7 +13,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/47c8/304018e5bf3107871fce962f5474e86137fcc18c1552923c3866d1fd0573.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아넬리히알루로닉딥클렌징워터 클렌징워터 대용량 원터치 펌프식 위생적이고 간편하게 한번만 꾹눌러사용 500ML ANELY CLEANSINGWATER 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7421816664&traceid=V0-153&itemId=19254485466&vendorItemId=86010335154)
+[아넬리히알루로닉딥클렌징워터 클렌징워터 대용량 원터치 펌프식 위생적이고 간편하게 한번만 꾹눌러사용 500ML ANELY CLEANSINGWATER 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7421816664&traceid=V0-153&itemId=19254485466&vendorItemId=86010335154)
 <br>
 - 할인율과 원래가격: 49%  78,900   원
 - 가격: 13,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7421816664&traceid=V0-153&itemId=19254485466&vendorItemId=86010335154){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7421816664&traceid=V0-153&itemId=19254485466&vendorItemId=86010335154){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2520208468946076-5ec64dbf-35a7-4164-a87b-470b3269e57f.jpg){: width="300" height="300" .w-50 .right}
 
 
-[바이오더마 센시비오 H20 민감용 500ml  250ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=3673350&traceid=V0-153&itemId=18115589&vendorItemId=3017222271)
+[바이오더마 센시비오 H20 민감용 500ml  250ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=3673350&traceid=V0-153&itemId=18115589&vendorItemId=3017222271)
 <br>
 - 할인율과 원래가격: 59%  38,900   원
 - 가격: 23,900원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=3673350&traceid=V0-153&itemId=18115589&vendorItemId=3017222271){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=3673350&traceid=V0-153&itemId=18115589&vendorItemId=3017222271){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1917429856037310-57ac3cac-376f-4bdf-9c11-a8f516ed834f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[더샘 힐링 티 가든 그린티 클렌징 워터 500ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5354055591&traceid=V0-153&itemId=7881972864&vendorItemId=75171488271)
+[더샘 힐링 티 가든 그린티 클렌징 워터 500ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5354055591&traceid=V0-153&itemId=7881972864&vendorItemId=75171488271)
 <br>
 - 할인율과 원래가격: 65%  53,000   원
 - 가격: 10,500원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5354055591&traceid=V0-153&itemId=7881972864&vendorItemId=75171488271){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5354055591&traceid=V0-153&itemId=7881972864&vendorItemId=75171488271){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1056805808403200-2a07f9a5-98e6-47e0-b2a8-be26a0e3d46c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[라운드랩 1025 독도 클렌징워터 400ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6279533190&traceid=V0-153&itemId=12887383896&vendorItemId=75869320286)
+[라운드랩 1025 독도 클렌징워터 400ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6279533190&traceid=V0-153&itemId=12887383896&vendorItemId=75869320286)
 <br>
 - 할인율과 원래가격: 
 - 가격: 9,440원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6279533190&traceid=V0-153&itemId=12887383896&vendorItemId=75869320286){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6279533190&traceid=V0-153&itemId=12887383896&vendorItemId=75869320286){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2496133529055442-527efbf9-6e2b-4ecd-b292-7b98eb7223bd.jpg){: width="300" height="300" .w-50 .left}
 
 
-[부케가르니 나드 미셀라 딥 클렌징 워터 500ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6627188351&traceid=V0-153&itemId=9132850929&vendorItemId=76418864009)
+[부케가르니 나드 미셀라 딥 클렌징 워터 500ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6627188351&traceid=V0-153&itemId=9132850929&vendorItemId=76418864009)
 <br>
 - 할인율과 원래가격: 15%  44,000   원
 - 가격: 11,900원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6627188351&traceid=V0-153&itemId=9132850929&vendorItemId=76418864009){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6627188351&traceid=V0-153&itemId=9132850929&vendorItemId=76418864009){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/euofelih/b9b075e6a84a49e6ac866163b40e6ce5.jpg){: width="300" height="300" .w-50 .right}
 
 
-[로벡틴 미셀라 딥 클렌징워터 400ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5347418647&traceid=V0-153&itemId=7855509846&vendorItemId=75145176533)
+[로벡틴 미셀라 딥 클렌징워터 400ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5347418647&traceid=V0-153&itemId=7855509846&vendorItemId=75145176533)
 <br>
 - 할인율과 원래가격: 59%  38,900   원
 - 가격: 9,990원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5347418647&traceid=V0-153&itemId=7855509846&vendorItemId=75145176533){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5347418647&traceid=V0-153&itemId=7855509846&vendorItemId=75145176533){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3473212743536268-b9967c23-639e-40d9-bc36-df0dddb83ceb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[바이오더마 센시비오 클렌징 H2O 500ml x 2p  100ml 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6109557371&traceid=V0-153&itemId=11505625566&vendorItemId=70567782380)
+[바이오더마 센시비오 클렌징 H2O 500ml x 2p  100ml 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6109557371&traceid=V0-153&itemId=11505625566&vendorItemId=70567782380)
 <br>
 - 할인율과 원래가격: 58%  40,000   원
 - 가격: 33,750원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6109557371&traceid=V0-153&itemId=11505625566&vendorItemId=70567782380){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6109557371&traceid=V0-153&itemId=11505625566&vendorItemId=70567782380){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1917433680370751-cfe48062-8438-437d-b5a4-dacf8935b04a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[더샘 힐링 티 가든 그린티 클렌징 워터 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5354055591&traceid=V0-153&itemId=7881972870&vendorItemId=75171488292)
+[더샘 힐링 티 가든 그린티 클렌징 워터 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5354055591&traceid=V0-153&itemId=7881972870&vendorItemId=75171488292)
 <br>
 - 할인율과 원래가격: 18%  45,800   원
 - 가격: 5,730원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5354055591&traceid=V0-153&itemId=7881972870&vendorItemId=75171488292){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5354055591&traceid=V0-153&itemId=7881972870&vendorItemId=75171488292){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/773d/2eb41582fa3a36840827b3d921884ff9eb1f7ad24d3853d818765da49919.jpg){: width="300" height="300" .w-50 .left}
 
 
-[화이트리 비움 미셀라바이옴 클렌징 워터 500ml  갈락토미세스 비피다 원푸시타입 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7335529879&traceid=V0-153&itemId=18842117206&vendorItemId=85971733809)
+[화이트리 비움 미셀라바이옴 클렌징 워터 500ml  갈락토미세스 비피다 원푸시타입 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7335529879&traceid=V0-153&itemId=18842117206&vendorItemId=85971733809)
 <br>
 - 할인율과 원래가격: 46%  25,800   원
 - 가격: 18,700원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7335529879&traceid=V0-153&itemId=18842117206&vendorItemId=85971733809){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7335529879&traceid=V0-153&itemId=18842117206&vendorItemId=85971733809){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![클렌징워터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3295053565569696-55837be4-ae60-4041-86fc-f3925f05dac8.jpg){: width="300" height="300" .w-50 .right}
 
 
-[토니모리 더촉촉 그린티 클렌징워터 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1197407638&traceid=V0-153&itemId=909346272&vendorItemId=70179342464)
+[토니모리 더촉촉 그린티 클렌징워터 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1197407638&traceid=V0-153&itemId=909346272&vendorItemId=70179342464)
 <br>
 - 할인율과 원래가격: 10%  20,000   원
 - 가격: 8,500원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1197407638&traceid=V0-153&itemId=909346272&vendorItemId=70179342464){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1197407638&traceid=V0-153&itemId=909346272&vendorItemId=70179342464){: .left}
 <br>
 <br>
 

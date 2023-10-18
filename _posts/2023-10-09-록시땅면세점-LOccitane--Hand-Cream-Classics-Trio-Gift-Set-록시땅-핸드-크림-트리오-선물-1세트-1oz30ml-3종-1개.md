@@ -13,7 +13,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d013/a2ca1ea55c4f9fee125488d31fe68b415df10991b851f44de1622e0ca82d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[LOccitane  Hand Cream Classics Trio Gift Set 록시땅 핸드 크림 트리오 선물 1세트 1oz30ml 3종 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7545784020&traceid=V0-153&itemId=19847179066&vendorItemId=86948465423)
+[LOccitane  Hand Cream Classics Trio Gift Set 록시땅 핸드 크림 트리오 선물 1세트 1oz30ml 3종 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7545784020&traceid=V0-153&itemId=19847179066&vendorItemId=86948465423)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 25,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7545784020&traceid=V0-153&itemId=19847179066&vendorItemId=86948465423){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7545784020&traceid=V0-153&itemId=19847179066&vendorItemId=86948465423){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3920580856032570-e03d483d-1afa-4e0e-be8a-3a83da299d5c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[록시땅 시어 버터 드라이 스킨 핸드 크림 150ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6550070267&traceid=V0-153&itemId=17843896197&vendorItemId=85007440281)
+[록시땅 시어 버터 드라이 스킨 핸드 크림 150ml 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6550070267&traceid=V0-153&itemId=17843896197&vendorItemId=85007440281)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 48,260원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6550070267&traceid=V0-153&itemId=17843896197&vendorItemId=85007440281){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6550070267&traceid=V0-153&itemId=17843896197&vendorItemId=85007440281){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2409933149387585-408c6bc4-a6bd-4271-ac06-362a34565a0e.jpg){: width="300" height="300" .w-50 .left}
 
 
-[록시땅 인텐시브 리페어 샴푸 1개 500ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6579971597&traceid=V0-153&itemId=14802953479&vendorItemId=82042696148)
+[록시땅 인텐시브 리페어 샴푸 1개 500ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6579971597&traceid=V0-153&itemId=14802953479&vendorItemId=82042696148)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 37,500원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6579971597&traceid=V0-153&itemId=14802953479&vendorItemId=82042696148){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6579971597&traceid=V0-153&itemId=14802953479&vendorItemId=82042696148){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/b38fa9bd-c225-44d8-af9e-eb4c789a146c1932657094963258366.png){: width="300" height="300" .w-50 .right}
 
 
-[록시땅 시어 드라이 스킨 핸드크림 30ml 3개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6550070267&traceid=V0-153&itemId=18626874012&vendorItemId=85762247732)
+[록시땅 시어 드라이 스킨 핸드크림 30ml 3개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6550070267&traceid=V0-153&itemId=18626874012&vendorItemId=85762247732)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 25,170원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6550070267&traceid=V0-153&itemId=18626874012&vendorItemId=85762247732){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6550070267&traceid=V0-153&itemId=18626874012&vendorItemId=85762247732){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d603/66594190f351785bfda558938ab46f25e139e05f1949a438a180cc979e8e.jpg){: width="300" height="300" .w-50 .left}
 
 
-[새로핸즈 프래그런스오일 록시땅 시어버터핸드크림 향 100ml FO 단품](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2251155005&traceid=V0-153&itemId=3848399650&vendorItemId=71833197852)
+[새로핸즈 프래그런스오일 록시땅 시어버터핸드크림 향 100ml FO 단품](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2251155005&traceid=V0-153&itemId=3848399650&vendorItemId=71833197852)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 13,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2251155005&traceid=V0-153&itemId=3848399650&vendorItemId=71833197852){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2251155005&traceid=V0-153&itemId=3848399650&vendorItemId=71833197852){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a8a2/001a84216ce5d11556ee323361e187b5003adecb7cbb0319ea6f9ebe0b1e.png){: width="300" height="300" .w-50 .right}
 
 
-[록시땅 체리 블라썸 쉬머링 바디 로션 1개 250ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6750333904&traceid=V0-153&itemId=15785820999&vendorItemId=82998722196)
+[록시땅 체리 블라썸 쉬머링 바디 로션 1개 250ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6750333904&traceid=V0-153&itemId=15785820999&vendorItemId=82998722196)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 21,000원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6750333904&traceid=V0-153&itemId=15785820999&vendorItemId=82998722196){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6750333904&traceid=V0-153&itemId=15785820999&vendorItemId=82998722196){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c7f2/b0e81aed322f44b3d02d48ffc62dd05c924997817a2aa605b55a48a22a76.jpg){: width="300" height="300" .w-50 .left}
 
 
-[록시땅 록시땅기프트 로즈 바디 듀오 세트 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7148528939&traceid=V0-153&itemId=17967095796&vendorItemId=85124410466)
+[록시땅 록시땅기프트 로즈 바디 듀오 세트 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7148528939&traceid=V0-153&itemId=17967095796&vendorItemId=85124410466)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 66,680원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7148528939&traceid=V0-153&itemId=17967095796&vendorItemId=85124410466){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7148528939&traceid=V0-153&itemId=17967095796&vendorItemId=85124410466){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/23d6/67fd6c7a1eaa59e64cdb1ee75a667b2981645b7206ae222bc148aafb613c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[록시땅 록시땅기프트 시트러스 버베나 오 드 뚜왈렛 세트 파우치  휴대용 핸드 키트 증정 선택완료 단품없음 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7374548384&traceid=V0-153&itemId=19031417305&vendorItemId=86155511463)
+[록시땅 록시땅기프트 시트러스 버베나 오 드 뚜왈렛 세트 파우치  휴대용 핸드 키트 증정 선택완료 단품없음 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7374548384&traceid=V0-153&itemId=19031417305&vendorItemId=86155511463)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 68,410원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7374548384&traceid=V0-153&itemId=19031417305&vendorItemId=86155511463){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7374548384&traceid=V0-153&itemId=19031417305&vendorItemId=86155511463){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a19f/745533c7799eb98a4761f35954d346c2b27811abfd42325c5aa447281cec.png){: width="300" height="300" .w-50 .left}
 
 
-[록시땅 시어 버터 울트라 리치 바디 크림 1개 200ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6590926353&traceid=V0-153&itemId=14872148931&vendorItemId=82111166726)
+[록시땅 시어 버터 울트라 리치 바디 크림 1개 200ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6590926353&traceid=V0-153&itemId=14872148931&vendorItemId=82111166726)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 28,810원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6590926353&traceid=V0-153&itemId=14872148931&vendorItemId=82111166726){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6590926353&traceid=V0-153&itemId=14872148931&vendorItemId=82111166726){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![록시땅면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a97b/d1a4aeb3008391e1d44e8a11279c5aaf2d9fb16899d09d0e2c5ca018bf5e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[록시땅 록시땅기프트 시어 바디 듀오 세트 샤워 크림  로션 단품없음](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7239845631&traceid=V0-153&itemId=18392556986&vendorItemId=85535573122)
+[록시땅 록시땅기프트 시어 바디 듀오 세트 샤워 크림  로션 단품없음](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7239845631&traceid=V0-153&itemId=18392556986&vendorItemId=85535573122)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 66,680원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7239845631&traceid=V0-153&itemId=18392556986&vendorItemId=85535573122){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7239845631&traceid=V0-153&itemId=18392556986&vendorItemId=85535573122){: .left}
 <br>
 <br>
 

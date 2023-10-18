@@ -13,7 +13,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b328/8fc25233643ad2f53edcbd5285af77732445bb34ddc0e0fab3a3524b6526.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894)
+[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894)
 <br>
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: 35,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b328/8fc25233643ad2f53edcbd5285af77732445bb34ddc0e0fab3a3524b6526.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894)
+[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894)
 <br>
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: 35,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bede/7fb5a26808ab743426bed416b609753d04b6a8b0ad626146b7309cc92023.jpg){: width="300" height="300" .w-50 .left}
 
 
-[페라가모 간치니 67 9939 NERO NAVY 746527 프리컷팅 양면 벨트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6578119496&traceid=V0-153&itemId=14791849633&vendorItemId=82241372304)
+[페라가모 간치니 67 9939 NERO NAVY 746527 프리컷팅 양면 벨트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6578119496&traceid=V0-153&itemId=14791849633&vendorItemId=82241372304)
 <br>
 - 할인율과 원래가격: 
 - 가격: 390,660원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6578119496&traceid=V0-153&itemId=14791849633&vendorItemId=82241372304){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6578119496&traceid=V0-153&itemId=14791849633&vendorItemId=82241372304){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d411/3301224cfb584623328b9366b198b32bc2b2968e97a3a65f2232dff97b98.jpg){: width="300" height="300" .w-50 .right}
 
 
-[페라가모 페라가모 간치니 양면 67 9535 NERO FJORD BLUE 714462 남성 프리컷팅 벨트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7458120275&traceid=V0-153&itemId=19433255666&vendorItemId=74601105524)
+[페라가모 페라가모 간치니 양면 67 9535 NERO FJORD BLUE 714462 남성 프리컷팅 벨트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7458120275&traceid=V0-153&itemId=19433255666&vendorItemId=74601105524)
 <br>
 - 할인율과 원래가격: 
 - 가격: 473,830원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7458120275&traceid=V0-153&itemId=19433255666&vendorItemId=74601105524){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7458120275&traceid=V0-153&itemId=19433255666&vendorItemId=74601105524){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6636/96310e52bb999bdc92cf6bd2d41dd85d7bc27ddac7dbf4049f1365a5acc7.jpg){: width="300" height="300" .w-50 .left}
 
 
-[ELLE Homme 엘르옴므 남성벨트 902100](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7107659046&traceid=V0-153&itemId=17759047377&vendorItemId=84923385063)
+[ELLE Homme 엘르옴므 남성벨트 902100](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7107659046&traceid=V0-153&itemId=17759047377&vendorItemId=84923385063)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 37,500원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7107659046&traceid=V0-153&itemId=17759047377&vendorItemId=84923385063){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7107659046&traceid=V0-153&itemId=17759047377&vendorItemId=84923385063){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a20b/d0cb1889066c32eb122993f183a7e5559cf50fa0f15a50e43cf591f70770.jpg){: width="300" height="300" .w-50 .right}
 
 
-[남성용 벨트  버클 2p 세트 남자자동벨트 허리띠 CR8](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4868102336&traceid=V0-153&itemId=18177921533&vendorItemId=85327044583)
+[남성용 벨트  버클 2p 세트 남자자동벨트 허리띠 CR8](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4868102336&traceid=V0-153&itemId=18177921533&vendorItemId=85327044583)
 <br>
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: 39,500원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4868102336&traceid=V0-153&itemId=18177921533&vendorItemId=85327044583){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4868102336&traceid=V0-153&itemId=18177921533&vendorItemId=85327044583){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c901/16921c4cf852c7031c277d35d58c4ef20077559c6cc5076adbf89d131649.jpg){: width="300" height="300" .w-50 .left}
 
 
-[페라가모 67 9493 0671453 679493 671453 간치니 벨트 트랜드메카](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7248782099&traceid=V0-153&itemId=18434348239&vendorItemId=85575750327)
+[페라가모 67 9493 0671453 679493 671453 간치니 벨트 트랜드메카](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7248782099&traceid=V0-153&itemId=18434348239&vendorItemId=85575750327)
 <br>
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: 419,700원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7248782099&traceid=V0-153&itemId=18434348239&vendorItemId=85575750327){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7248782099&traceid=V0-153&itemId=18434348239&vendorItemId=85575750327){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ee7b/d039ac69400602e522f5081d166dd9915e5ee410f2a3218c5d6519e39f3c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[페라가모 67 9493 0671453 679493 671453 간치니 벨트 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5970244747&traceid=V0-153&itemId=10723011319&vendorItemId=86482595678)
+[페라가모 67 9493 0671453 679493 671453 간치니 벨트 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5970244747&traceid=V0-153&itemId=10723011319&vendorItemId=86482595678)
 <br>
 - 할인율과 원래가격: 55%  65,600   원
 - 가격: 390,630원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5970244747&traceid=V0-153&itemId=10723011319&vendorItemId=86482595678){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5970244747&traceid=V0-153&itemId=10723011319&vendorItemId=86482595678){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fc71/d1c9e0b7999fc93ab566b19b7543f0680ebc0325e9b24dfc2b9a421e8340.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043135&vendorItemId=85669606882)
+[Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043135&vendorItemId=85669606882)
 <br>
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: 35,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7268421612&traceid=V0-153&itemId=18531043135&vendorItemId=85669606882){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7268421612&traceid=V0-153&itemId=18531043135&vendorItemId=85669606882){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![페라가모벨트 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c9e8/c6ec29bcde4a12649b10a1eba8cb4f6e936583fc21a017164d2e7402f6d3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[살바토레 페라가모 라벨루쏘 페라가모 더블 간치니 리버서블 벨트 67 9710 L](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6634291366&traceid=V0-153&itemId=15138587838&vendorItemId=85163619341)
+[살바토레 페라가모 라벨루쏘 페라가모 더블 간치니 리버서블 벨트 67 9710 L](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6634291366&traceid=V0-153&itemId=15138587838&vendorItemId=85163619341)
 <br>
 - 할인율과 원래가격: 61%  56,900   원
 - 가격: 505,440원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6634291366&traceid=V0-153&itemId=15138587838&vendorItemId=85163619341){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6634291366&traceid=V0-153&itemId=15138587838&vendorItemId=85163619341){: .left}
 <br>
 <br>
 

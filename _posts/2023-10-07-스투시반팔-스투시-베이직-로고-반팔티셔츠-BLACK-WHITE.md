@@ -13,7 +13,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e2f/eb2aecd51da7cfce1df4b728ac7b648f2a1054668fa067806dccd45e951a.jpg){: width="300" height="300" .w-50 .left}
 
 
-[스투시 베이직 로고 반팔티셔츠 BLACK WHITE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7456875589&traceid=V0-153&itemId=19426862424&vendorItemId=86538175680)
+[스투시 베이직 로고 반팔티셔츠 BLACK WHITE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7456875589&traceid=V0-153&itemId=19426862424&vendorItemId=86538175680)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 82,900원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7456875589&traceid=V0-153&itemId=19426862424&vendorItemId=86538175680){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7456875589&traceid=V0-153&itemId=19426862424&vendorItemId=86538175680){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7234/7f66a56e2c42937def904b13e23898216158288d6ffa9b80ac55d3e2c423.png){: width="300" height="300" .w-50 .right}
 
 
-[스투시맨투맨 후드티 집업 베이직 월드투어 맨투맨티 남녀공용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7600067356&traceid=V0-153&itemId=20102561416&vendorItemId=87197652303)
+[스투시맨투맨 후드티 집업 베이직 월드투어 맨투맨티 남녀공용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7600067356&traceid=V0-153&itemId=20102561416&vendorItemId=87197652303)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 49,500원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7600067356&traceid=V0-153&itemId=20102561416&vendorItemId=87197652303){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7600067356&traceid=V0-153&itemId=20102561416&vendorItemId=87197652303){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6530/a92c6a8e6d0721c8cce04afa221ac0b14ebb41b2362c1579dd68592a9c59.jpg){: width="300" height="300" .w-50 .left}
 
 
-[스투시 베이직 로고 반팔티셔츠 BLACK WHITE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7242738279&traceid=V0-153&itemId=18406636230&vendorItemId=85549213430)
+[스투시 베이직 로고 반팔티셔츠 BLACK WHITE](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7242738279&traceid=V0-153&itemId=18406636230&vendorItemId=85549213430)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 44,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7242738279&traceid=V0-153&itemId=18406636230&vendorItemId=85549213430){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7242738279&traceid=V0-153&itemId=18406636230&vendorItemId=85549213430){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d6ec/fc9eeca64c902cc3048aede4afbc574412b9ee90736ac62bbb6570a7bda4.jpg){: width="300" height="300" .w-50 .right}
 
 
-[stussy 정품 스투시 로고 반팔티  항공배송으로 빠르게 받으세요](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5615458939&traceid=V0-153&itemId=9088076867&vendorItemId=76374310304)
+[stussy 정품 스투시 로고 반팔티  항공배송으로 빠르게 받으세요](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5615458939&traceid=V0-153&itemId=9088076867&vendorItemId=76374310304)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 81,800원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5615458939&traceid=V0-153&itemId=9088076867&vendorItemId=76374310304){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5615458939&traceid=V0-153&itemId=9088076867&vendorItemId=76374310304){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/50cd/a4f55dcd269e14db381f8ab2c4fb24ccee6c7c4c8484d940fd53bcb98de5.png){: width="300" height="300" .w-50 .left}
 
 
-[스투시후드티 모음 스트리트 캐주얼 패션 남녀공용 후디 후드티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525640662&traceid=V0-153&itemId=19747524592&vendorItemId=87314777923)
+[스투시후드티 모음 스트리트 캐주얼 패션 남녀공용 후디 후드티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525640662&traceid=V0-153&itemId=19747524592&vendorItemId=87314777923)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 55,400원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525640662&traceid=V0-153&itemId=19747524592&vendorItemId=87314777923){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525640662&traceid=V0-153&itemId=19747524592&vendorItemId=87314777923){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f2c6/f08f2391bea481d0e6ca70e52e87a471208e13467ca593195db8d0c61c6c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[스투시후드집업 베이직 후드 집업 후드 재킷 모음 5컬러](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525630098&traceid=V0-153&itemId=19747467649&vendorItemId=86851037301)
+[스투시후드집업 베이직 후드 집업 후드 재킷 모음 5컬러](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525630098&traceid=V0-153&itemId=19747467649&vendorItemId=86851037301)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 58,600원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525630098&traceid=V0-153&itemId=19747467649&vendorItemId=86851037301){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525630098&traceid=V0-153&itemId=19747467649&vendorItemId=86851037301){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ff04/ee17f97d8c4be78ecb5be01c9b20fd386ceab419b495dd97095165130743.jpg){: width="300" height="300" .w-50 .left}
 
 
-[스투시백로고 프린팅 후드 집업 남녀공용 자켓 후드티](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525635659&traceid=V0-153&itemId=19747497240&vendorItemId=86851064988)
+[스투시백로고 프린팅 후드 집업 남녀공용 자켓 후드티](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525635659&traceid=V0-153&itemId=19747497240&vendorItemId=86851064988)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 84,200원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7525635659&traceid=V0-153&itemId=19747497240&vendorItemId=86851064988){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7525635659&traceid=V0-153&itemId=19747497240&vendorItemId=86851064988){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1154454865648719-08a96db4-225b-4062-a50b-bf82055449cf.jpg){: width="300" height="300" .w-50 .right}
 
 
-[에센셜 스트릿 로고 17수 스트릿룩 면 오버핏 반팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7295277625&traceid=V0-153&itemId=18655033467&vendorItemId=85789788532)
+[에센셜 스트릿 로고 17수 스트릿룩 면 오버핏 반팔 티셔츠](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7295277625&traceid=V0-153&itemId=18655033467&vendorItemId=85789788532)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 12,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7295277625&traceid=V0-153&itemId=18655033467&vendorItemId=85789788532){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7295277625&traceid=V0-153&itemId=18655033467&vendorItemId=85789788532){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ea81/2386cea3d64a7224351c89bcc32f3cdbcc2cf38b95a85d2740ba1c222e0e.jpg){: width="300" height="300" .w-50 .left}
 
 
-[당일발송 23SS 스투시 다이스 아웃 반팔 티셔츠 블랙 화이트 1904971](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7518778356&traceid=V0-153&itemId=19715826492&vendorItemId=87273399307)
+[당일발송 23SS 스투시 다이스 아웃 반팔 티셔츠 블랙 화이트 1904971](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518778356&traceid=V0-153&itemId=19715826492&vendorItemId=87273399307)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 121,590원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7518778356&traceid=V0-153&itemId=19715826492&vendorItemId=87273399307){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518778356&traceid=V0-153&itemId=19715826492&vendorItemId=87273399307){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![스투시반팔 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b188/1dc6591ba425a4b879e9caac95d8474df002cf59a2e1562a6425bf463aa4.jpg){: width="300" height="300" .w-50 .right}
 
 
-[스타일아유 여성 여름 뉴트로 루즈핏 반팔 티셔츠 커플 로고 오버핏 반팔티 6컬러](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6718494265&traceid=V0-153&itemId=19155062097&vendorItemId=86092448381)
+[스타일아유 여성 여름 뉴트로 루즈핏 반팔 티셔츠 커플 로고 오버핏 반팔티 6컬러](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6718494265&traceid=V0-153&itemId=19155062097&vendorItemId=86092448381)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 7,900원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6718494265&traceid=V0-153&itemId=19155062097&vendorItemId=86092448381){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6718494265&traceid=V0-153&itemId=19155062097&vendorItemId=86092448381){: .left}
 <br>
 <br>
 

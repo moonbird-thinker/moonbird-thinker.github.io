@@ -13,7 +13,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5a7e/88519d28f3b9106b9e75f567010cd6c607b3d6740c40203a1c8728b226cf.jpg){: width="300" height="300" .w-50 .left}
 
 
-[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328)
+[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328)
 <br>
 - 할인율과 원래가격: 
 - 가격: 29,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5a7e/88519d28f3b9106b9e75f567010cd6c607b3d6740c40203a1c8728b226cf.jpg){: width="300" height="300" .w-50 .right}
 
 
-[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328)
+[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328)
 <br>
 - 할인율과 원래가격: 
 - 가격: 29,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460360746&traceid=V0-153&itemId=19443983416&vendorItemId=83714893328){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1567/aebbbfb55732a1256c7ecb17fe1fef96a35433f32b9c4a3706b2e6407e69.jpg){: width="300" height="300" .w-50 .left}
 
 
-[diary of a wimpy kid 윔피키드 다이어리 16권세트 영어원서 음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1414516504&traceid=V0-153&itemId=2451104607&vendorItemId=81042754547)
+[diary of a wimpy kid 윔피키드 다이어리 16권세트 영어원서 음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1414516504&traceid=V0-153&itemId=2451104607&vendorItemId=81042754547)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 29,800원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1414516504&traceid=V0-153&itemId=2451104607&vendorItemId=81042754547){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1414516504&traceid=V0-153&itemId=2451104607&vendorItemId=81042754547){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/o442mbzg/6edc1c2430be40beb2abe14f6558bb38.jpg){: width="300" height="300" .w-50 .right}
 
 
-[윔피 키드 세트 전10권 아이세움](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5733811805&traceid=V0-153&itemId=9629742283&vendorItemId=76914046050)
+[윔피 키드 세트 전10권 아이세움](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5733811805&traceid=V0-153&itemId=9629742283&vendorItemId=76914046050)
 <br>
 - 할인율과 원래가격: 
 - 가격: 108,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5733811805&traceid=V0-153&itemId=9629742283&vendorItemId=76914046050){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5733811805&traceid=V0-153&itemId=9629742283&vendorItemId=76914046050){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/96c1/e057738c27e6a8f67c96c8e9ca391abde4f7e273eb7f11ca5229d5f693a8.jpg){: width="300" height="300" .w-50 .left}
 
 
-[다정책방 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22 권 세트음원제공](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7514364875&traceid=V0-153&itemId=19695642770&vendorItemId=82949581994)
+[다정책방 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22 권 세트음원제공](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7514364875&traceid=V0-153&itemId=19695642770&vendorItemId=82949581994)
 <br>
 - 할인율과 원래가격: 
 - 가격: 29,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7514364875&traceid=V0-153&itemId=19695642770&vendorItemId=82949581994){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7514364875&traceid=V0-153&itemId=19695642770&vendorItemId=82949581994){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aebf/283cbfb01cebd73050b5ae496967abf8755a02ebc972520a7f4e74d76f70.png){: width="300" height="300" .w-50 .right}
 
 
-[국내 무배 고퀄 윔피키드 다이어리 22권 세트 Diary of a Wimpy Kid 영어원서 음원제공 AR5점대](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7485475004&traceid=V0-153&itemId=19563233500&vendorItemId=79019053470)
+[국내 무배 고퀄 윔피키드 다이어리 22권 세트 Diary of a Wimpy Kid 영어원서 음원제공 AR5점대](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7485475004&traceid=V0-153&itemId=19563233500&vendorItemId=79019053470)
 <br>
 - 할인율과 원래가격: 
 - 가격: 38,500원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7485475004&traceid=V0-153&itemId=19563233500&vendorItemId=79019053470){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7485475004&traceid=V0-153&itemId=19563233500&vendorItemId=79019053470){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/05/17/18/9/c32b0c75-d087-4138-b4d1-62c5253cdf01.jpg){: width="300" height="300" .w-50 .left}
 
 
-[윔피키드 12권 세트 미래엔](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6526190807&traceid=V0-153&itemId=14478452724&vendorItemId=81721718535)
+[윔피키드 12권 세트 미래엔](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6526190807&traceid=V0-153&itemId=14478452724&vendorItemId=81721718535)
 <br>
 - 할인율과 원래가격: 
 - 가격: 21,600원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6526190807&traceid=V0-153&itemId=14478452724&vendorItemId=81721718535){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6526190807&traceid=V0-153&itemId=14478452724&vendorItemId=81721718535){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/151693116528421-f9a11917-2483-440b-b008-a6e218255a17.jpg){: width="300" height="300" .w-50 .right}
 
 
-[윔피 키드 1  학교생활일기 아이세움 윔피키드 시리즈2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5448630&traceid=V0-153&itemId=24696952&vendorItemId=3038242947)
+[윔피 키드 1  학교생활일기 아이세움 윔피키드 시리즈2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5448630&traceid=V0-153&itemId=24696952&vendorItemId=3038242947)
 <br>
 - 할인율과 원래가격: 
 - 가격: 10,800원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5448630&traceid=V0-153&itemId=24696952&vendorItemId=3038242947){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5448630&traceid=V0-153&itemId=24696952&vendorItemId=3038242947){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2547/d1e458054841ea9cf33145abbbed766181d0f871ea2886e54747b1974757.jpg){: width="300" height="300" .w-50 .left}
 
 
-[이엔제이 호리드헨리 챕터북 30권세트 Horrid Henry Loathsome Library 음원제공](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7396573608&traceid=V0-153&itemId=19134963752&vendorItemId=86158178731)
+[이엔제이 호리드헨리 챕터북 30권세트 Horrid Henry Loathsome Library 음원제공](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7396573608&traceid=V0-153&itemId=19134963752&vendorItemId=86158178731)
 <br>
 - 할인율과 원래가격: 
 - 가격: 33,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7396573608&traceid=V0-153&itemId=19134963752&vendorItemId=86158178731){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7396573608&traceid=V0-153&itemId=19134963752&vendorItemId=86158178731){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![윔피키드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5a7e/88519d28f3b9106b9e75f567010cd6c607b3d6740c40203a1c8728b226cf.jpg){: width="300" height="300" .w-50 .right}
 
 
-[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460361350&traceid=V0-153&itemId=19443986102&vendorItemId=83778387871)
+[이엔제이 국내 Diary of a Wimpy Kid 윔피키드 다이어리 세트 원서 22권 세트 선택구매 정식음원](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460361350&traceid=V0-153&itemId=19443986102&vendorItemId=83778387871)
 <br>
 - 할인율과 원래가격: 
 - 가격: 29,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7460361350&traceid=V0-153&itemId=19443986102&vendorItemId=83778387871){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7460361350&traceid=V0-153&itemId=19443986102&vendorItemId=83778387871){: .left}
 <br>
 <br>
 

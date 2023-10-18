@@ -13,7 +13,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ul7eokt2/21833feb09014f35a1651e82735dfefa.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이띵소 DAY OFF BACKPACK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518805&traceid=V0-153&itemId=13567280947&vendorItemId=80820748724)
+[아이띵소 DAY OFF BACKPACK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518805&traceid=V0-153&itemId=13567280947&vendorItemId=80820748724)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 52,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518805&traceid=V0-153&itemId=13567280947&vendorItemId=80820748724){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518805&traceid=V0-153&itemId=13567280947&vendorItemId=80820748724){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/operator/160244527/3fac87a4-9fb1-e628-bf8a-5aee3db7c43a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[골드앤 엘리카 목걸이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=44706777&traceid=V0-153&itemId=160244527&vendorItemId=85926100285)
+[골드앤 엘리카 목걸이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=44706777&traceid=V0-153&itemId=160244527&vendorItemId=85926100285)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 241,300원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=44706777&traceid=V0-153&itemId=160244527&vendorItemId=85926100285){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=44706777&traceid=V0-153&itemId=160244527&vendorItemId=85926100285){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7f20/66ed13f8eaa915a87ea768e2fff776e87ae5f093f3fbdeb77a2dfe12ced0.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이띵소 MINI NEAT TENCEL](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518528&traceid=V0-153&itemId=13567279544&vendorItemId=81807531492)
+[아이띵소 MINI NEAT TENCEL](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518528&traceid=V0-153&itemId=13567279544&vendorItemId=81807531492)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 29,700원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518528&traceid=V0-153&itemId=13567279544&vendorItemId=81807531492){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518528&traceid=V0-153&itemId=13567279544&vendorItemId=81807531492){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/008b/e6e8d66c01cc38d9f7c34938c7b8a3521562cadd4878078c0a8ab698b0c2.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아이띵소 NEAT BAG CLASSY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518858&traceid=V0-153&itemId=13567281270&vendorItemId=78407775736)
+[아이띵소 NEAT BAG CLASSY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518858&traceid=V0-153&itemId=13567281270&vendorItemId=78407775736)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 33,480원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518858&traceid=V0-153&itemId=13567281270&vendorItemId=78407775736){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518858&traceid=V0-153&itemId=13567281270&vendorItemId=78407775736){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/1m98zeoa/88cd63e0649242328234eafc3e0ce4c2.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이띵소 남녀공용 WEEKENDER 2WAY PACK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518502&traceid=V0-153&itemId=13567279429&vendorItemId=80820747120)
+[아이띵소 남녀공용 WEEKENDER 2WAY PACK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518502&traceid=V0-153&itemId=13567279429&vendorItemId=80820747120)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 30,100원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518502&traceid=V0-153&itemId=13567279429&vendorItemId=80820747120){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518502&traceid=V0-153&itemId=13567279429&vendorItemId=80820747120){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f882/5dec1c54ef7363b3ed893d64200775be9b81218870cfcf1e9521e80491b1.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아이띵소 MATT CROSS X SHOULDER 매트 크로스 X 숄더](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1160431091&traceid=V0-153&itemId=2137015771&vendorItemId=73729087682)
+[아이띵소 MATT CROSS X SHOULDER 매트 크로스 X 숄더](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1160431091&traceid=V0-153&itemId=2137015771&vendorItemId=73729087682)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 27,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1160431091&traceid=V0-153&itemId=2137015771&vendorItemId=73729087682){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1160431091&traceid=V0-153&itemId=2137015771&vendorItemId=73729087682){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/4emz7hxq/3530a622a5224722b5e837b1453e6ea3.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이띵소 남녀공용 HEN DAY BODY CROSS](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518506&traceid=V0-153&itemId=13556445570&vendorItemId=80810007672)
+[아이띵소 남녀공용 HEN DAY BODY CROSS](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518506&traceid=V0-153&itemId=13556445570&vendorItemId=80810007672)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 26,000원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6382518506&traceid=V0-153&itemId=13556445570&vendorItemId=80810007672){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6382518506&traceid=V0-153&itemId=13556445570&vendorItemId=80810007672){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d9ca/bb1ee9d3efd596e3d6a3e1537d270aeb53a59dd2443cc3dfdab46f2b70eb.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아이띵소 MATT TRIO POUCH X BAG](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4853004149&traceid=V0-153&itemId=6286278710&vendorItemId=73581839056)
+[아이띵소 MATT TRIO POUCH X BAG](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4853004149&traceid=V0-153&itemId=6286278710&vendorItemId=73581839056)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 18,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4853004149&traceid=V0-153&itemId=6286278710&vendorItemId=73581839056){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4853004149&traceid=V0-153&itemId=6286278710&vendorItemId=73581839056){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/32e1/97b256a71d04c617ad0607a91285e33c117a85df205135e477de65032262.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이띵소 어반 크로스백 MS](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=174605302&traceid=V0-153&itemId=498690461&vendorItemId=86489877706)
+[아이띵소 어반 크로스백 MS](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=174605302&traceid=V0-153&itemId=498690461&vendorItemId=86489877706)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 61,700원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=174605302&traceid=V0-153&itemId=498690461&vendorItemId=86489877706){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=174605302&traceid=V0-153&itemId=498690461&vendorItemId=86489877706){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![아이띵소면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2520910016873226-fbcc7e1d-f83f-4311-be90-6db0b63d8aee.png){: width="300" height="300" .w-50 .right}
 
 
-[투미 보이저 툴라 크로스백 131958](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6938968221&traceid=V0-153&itemId=16819867589&vendorItemId=83999999620)
+[투미 보이저 툴라 크로스백 131958](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6938968221&traceid=V0-153&itemId=16819867589&vendorItemId=83999999620)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 355,110원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6938968221&traceid=V0-153&itemId=16819867589&vendorItemId=83999999620){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6938968221&traceid=V0-153&itemId=16819867589&vendorItemId=83999999620){: .left}
 <br>
 <br>
 

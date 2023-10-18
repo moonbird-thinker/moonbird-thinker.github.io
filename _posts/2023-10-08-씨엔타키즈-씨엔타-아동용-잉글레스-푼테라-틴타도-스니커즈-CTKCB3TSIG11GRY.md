@@ -13,7 +13,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/zl3zqtyi/d1d784340c7b41f98e2e6686d5d655f4.jpg){: width="300" height="300" .w-50 .left}
 
 
-[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈 CTKCB3TSIG11GRY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6062525518&traceid=V0-153&itemId=11154423304&vendorItemId=78432726415)
+[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈 CTKCB3TSIG11GRY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6062525518&traceid=V0-153&itemId=11154423304&vendorItemId=78432726415)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 12,600원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6062525518&traceid=V0-153&itemId=11154423304&vendorItemId=78432726415){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6062525518&traceid=V0-153&itemId=11154423304&vendorItemId=78432726415){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x7ipkxpn/e44b133ad6db4b4a99f68791cd290b90.jpg){: width="300" height="300" .w-50 .right}
 
 
-[씨엔타 여아용 메르세데스 루시르 구두 CTKCB3TSML11NVY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6064922007&traceid=V0-153&itemId=11169934763&vendorItemId=78447973849)
+[씨엔타 여아용 메르세데스 루시르 구두 CTKCB3TSML11NVY](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6064922007&traceid=V0-153&itemId=11169934763&vendorItemId=78447973849)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 52,120원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6064922007&traceid=V0-153&itemId=11169934763&vendorItemId=78447973849){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6064922007&traceid=V0-153&itemId=11169934763&vendorItemId=78447973849){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6a16/5e47af67d1e2cbc127b8e546b29a38b4d6597fdec9379356f10bb8e925f9.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아띠빠스 아동 스니커즈 니트슈즈 도담라인](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7218581590&traceid=V0-153&itemId=18287261025&vendorItemId=85574086526)
+[아띠빠스 아동 스니커즈 니트슈즈 도담라인](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7218581590&traceid=V0-153&itemId=18287261025&vendorItemId=85574086526)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 36,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7218581590&traceid=V0-153&itemId=18287261025&vendorItemId=85574086526){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7218581590&traceid=V0-153&itemId=18287261025&vendorItemId=85574086526){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/10/06/13/9/1d943510-f417-451d-879d-e699d0039baa.jpg){: width="300" height="300" .w-50 .right}
 
 
-[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2264407637&traceid=V0-153&itemId=3881023907&vendorItemId=71797530276)
+[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2264407637&traceid=V0-153&itemId=3881023907&vendorItemId=71797530276)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 32,610원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2264407637&traceid=V0-153&itemId=3881023907&vendorItemId=71797530276){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2264407637&traceid=V0-153&itemId=3881023907&vendorItemId=71797530276){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c5c7/61f69120dfad1b219263c17008424186ea73cbe8eb5cdf899758308af868.jpg){: width="300" height="300" .w-50 .left}
 
 
-[바브키즈 피플스마일세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699180209&traceid=V0-153&itemId=15510881850&vendorItemId=84736853006)
+[바브키즈 피플스마일세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699180209&traceid=V0-153&itemId=15510881850&vendorItemId=84736853006)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 20,900원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699180209&traceid=V0-153&itemId=15510881850&vendorItemId=84736853006){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699180209&traceid=V0-153&itemId=15510881850&vendorItemId=84736853006){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac90/1a240a6b5163d832d055e7d3a67bb72602dac24a0c10543bab83cf52230d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[바브키즈 피플스마일세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699180209&traceid=V0-153&itemId=15510881838&vendorItemId=84736852830)
+[바브키즈 피플스마일세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699180209&traceid=V0-153&itemId=15510881838&vendorItemId=84736852830)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 20,900원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699180209&traceid=V0-153&itemId=15510881838&vendorItemId=84736852830){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699180209&traceid=V0-153&itemId=15510881838&vendorItemId=84736852830){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/hq2s5gba/51b9cc8de9014674ba88d346904d4ecb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[씨엔타 아동용 잉글레스 푼테라 틴타도 CTKCB1TSIG11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5463949948&traceid=V0-153&itemId=8371042006&vendorItemId=75658766173)
+[씨엔타 아동용 잉글레스 푼테라 틴타도 CTKCB1TSIG11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5463949948&traceid=V0-153&itemId=8371042006&vendorItemId=75658766173)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 21,360원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5463949948&traceid=V0-153&itemId=8371042006&vendorItemId=75658766173){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5463949948&traceid=V0-153&itemId=8371042006&vendorItemId=75658766173){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/pbnzhbhj/2874efbc174e43cca7c23ff9d029c90b.jpg){: width="300" height="300" .w-50 .right}
 
 
-[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6436549460&traceid=V0-153&itemId=13915206743&vendorItemId=81164686628)
+[씨엔타 아동용 잉글레스 푼테라 틴타도 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6436549460&traceid=V0-153&itemId=13915206743&vendorItemId=81164686628)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 34,060원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6436549460&traceid=V0-153&itemId=13915206743&vendorItemId=81164686628){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6436549460&traceid=V0-153&itemId=13915206743&vendorItemId=81164686628){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f6c5/744c5c6ad0a3e7439b8553986273fb40590facf53757172f12972cded749.jpg){: width="300" height="300" .w-50 .left}
 
 
-[크록스 본사 키즈 라렌 라인드 클로그](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=297702282&traceid=V0-153&itemId=937677957&vendorItemId=5321669588)
+[크록스 본사 키즈 라렌 라인드 클로그](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=297702282&traceid=V0-153&itemId=937677957&vendorItemId=5321669588)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 19,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=297702282&traceid=V0-153&itemId=937677957&vendorItemId=5321669588){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=297702282&traceid=V0-153&itemId=937677957&vendorItemId=5321669588){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![씨엔타키즈 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/zs0mzfdt/a2a7830ead314169b0a7bdc9d74f288b.jpg){: width="300" height="300" .w-50 .right}
 
 
-[씨엔타 아동용 잉글레스 푼테라 틴타도 CTKCB1TSIG11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5463795588&traceid=V0-153&itemId=8370527205&vendorItemId=75658252650)
+[씨엔타 아동용 잉글레스 푼테라 틴타도 CTKCB1TSIG11](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5463795588&traceid=V0-153&itemId=8370527205&vendorItemId=75658252650)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 21,360원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5463795588&traceid=V0-153&itemId=8370527205&vendorItemId=75658252650){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5463795588&traceid=V0-153&itemId=8370527205&vendorItemId=75658252650){: .left}
 <br>
 <br>
 

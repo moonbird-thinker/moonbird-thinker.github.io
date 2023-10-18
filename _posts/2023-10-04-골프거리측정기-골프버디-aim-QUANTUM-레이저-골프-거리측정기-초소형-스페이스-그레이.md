@@ -13,7 +13,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/15/14/9/33a70d69-a20c-4c25-aa72-032719bf088b.jpg){: width="300" height="300" .w-50 .left}
 
 
-[골프버디 aim QUANTUM 레이저 골프 거리측정기 초소형 스페이스 그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6922157045&traceid=V0-153&itemId=16720186752&vendorItemId=83902385534)
+[골프버디 aim QUANTUM 레이저 골프 거리측정기 초소형 스페이스 그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6922157045&traceid=V0-153&itemId=16720186752&vendorItemId=83902385534)
 <br>
 - 할인율과 원래가격: 
 - 가격: 325,310원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6922157045&traceid=V0-153&itemId=16720186752&vendorItemId=83902385534){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6922157045&traceid=V0-153&itemId=16720186752&vendorItemId=83902385534){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3647392313892513-e68af9ff-8493-4447-b455-47bd9583fc45.jpg){: width="300" height="300" .w-50 .right}
 
 
-[투힘 버디버디 골프 레이저 거리 속도 측정기 TB01 혼합색상](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833)
+[투힘 버디버디 골프 레이저 거리 속도 측정기 TB01 혼합색상](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,900원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5393746797&traceid=V0-153&itemId=8050651735&vendorItemId=75339179833){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1758421072773550-c9336138-1034-407e-9673-65323d57f815.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아이나비 SPORTS EQ1 초소형 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355)
+[아이나비 SPORTS EQ1 초소형 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 199,000원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6503799367&traceid=V0-153&itemId=14332327494&vendorItemId=81576915355){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/397722265072001-d7792f62-4b52-4362-8604-0dfa794a33d3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[부쉬넬 골프 Tour V6 Shift 레이저 골프 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7281793373&traceid=V0-153&itemId=18593032972&vendorItemId=85729257150)
+[부쉬넬 골프 Tour V6 Shift 레이저 골프 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7281793373&traceid=V0-153&itemId=18593032972&vendorItemId=85729257150)
 <br>
 - 할인율과 원래가격: 
 - 가격: 465,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7281793373&traceid=V0-153&itemId=18593032972&vendorItemId=85729257150){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7281793373&traceid=V0-153&itemId=18593032972&vendorItemId=85729257150){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7ffd/2712e890d7dd368b2447deb1b99ef11b61bc11b89ff4be3a9e4071cce3fb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[엑스킹 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462)
+[엑스킹 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/01/15/5/682a8547-fa44-42d5-b97d-79f51c14fdbb.jpg){: width="300" height="300" .w-50 .right}
 
 
-[알투지 메이트원 레이저 골프 거리측정기 미드나잇 블루](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885314396&traceid=V0-153&itemId=16513000897&vendorItemId=83700304198)
+[알투지 메이트원 레이저 골프 거리측정기 미드나잇 블루](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885314396&traceid=V0-153&itemId=16513000897&vendorItemId=83700304198)
 <br>
 - 할인율과 원래가격: 
 - 가격: 269,000원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885314396&traceid=V0-153&itemId=16513000897&vendorItemId=83700304198){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885314396&traceid=V0-153&itemId=16513000897&vendorItemId=83700304198){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7ffd/2712e890d7dd368b2447deb1b99ef11b61bc11b89ff4be3a9e4071cce3fb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[엑스킹 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462)
+[엑스킹 골프 레이저 거리측정기 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,000원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6885102099&traceid=V0-153&itemId=16511903465&vendorItemId=83711243462){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/14/14/4/f88a6a9d-8511-4efe-826e-eb171f092fee.jpg){: width="300" height="300" .w-50 .right}
 
 
-[보이스캐디 GPS 레이저 골프거리측정기 블루그린 SL3](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7196401633&traceid=V0-153&itemId=18180206561&vendorItemId=85329245610)
+[보이스캐디 GPS 레이저 골프거리측정기 블루그린 SL3](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7196401633&traceid=V0-153&itemId=18180206561&vendorItemId=85329245610)
 <br>
 - 할인율과 원래가격: 
 - 가격: 671,240원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7196401633&traceid=V0-153&itemId=18180206561&vendorItemId=85329245610){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7196401633&traceid=V0-153&itemId=18180206561&vendorItemId=85329245610){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a7e1/c7f7feb932949c6614666691734e165011df5f96866937c45e6a05cd0359.jpg){: width="300" height="300" .w-50 .left}
 
 
-[최장 무상AS 5년보증 스위스밀리터리 골프거리측정기 SMAGL30](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7405564575&traceid=V0-153&itemId=19176662977&vendorItemId=86294650617)
+[최장 무상AS 5년보증 스위스밀리터리 골프거리측정기 SMAGL30](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7405564575&traceid=V0-153&itemId=19176662977&vendorItemId=86294650617)
 <br>
 - 할인율과 원래가격: 
 - 가격: 149,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7405564575&traceid=V0-153&itemId=19176662977&vendorItemId=86294650617){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7405564575&traceid=V0-153&itemId=19176662977&vendorItemId=86294650617){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![골프거리측정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/03/17/16/0/4ff85172-a880-4ecb-ab36-7590cd9f5e41.png){: width="300" height="300" .w-50 .right}
 
 
-[보이스캐디 T울트라 시계형 골프거리측정기 T울트라 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7201129268&traceid=V0-153&itemId=18218201599&vendorItemId=85366000054)
+[보이스캐디 T울트라 시계형 골프거리측정기 T울트라 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7201129268&traceid=V0-153&itemId=18218201599&vendorItemId=85366000054)
 <br>
 - 할인율과 원래가격: 
 - 가격: 382,450원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7201129268&traceid=V0-153&itemId=18218201599&vendorItemId=85366000054){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7201129268&traceid=V0-153&itemId=18218201599&vendorItemId=85366000054){: .left}
 <br>
 <br>
 

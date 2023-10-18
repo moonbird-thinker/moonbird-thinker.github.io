@@ -13,7 +13,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e53/0d51e256799c436c1a623914f06e6aec34d7dcc28a1ec17860b21e7d519d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[다정책방 국내 셜록홈즈 시즌1 10권 세트 영어원서 Sherlock Holmes 음원제공 시즌110권](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7238525142&traceid=V0-153&itemId=18386051375&vendorItemId=77949770613)
+[다정책방 국내 셜록홈즈 시즌1 10권 세트 영어원서 Sherlock Holmes 음원제공 시즌110권](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7238525142&traceid=V0-153&itemId=18386051375&vendorItemId=77949770613)
 <br>
 - 할인율과 원래가격: 
 - 가격: 17,000원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7238525142&traceid=V0-153&itemId=18386051375&vendorItemId=77949770613){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7238525142&traceid=V0-153&itemId=18386051375&vendorItemId=77949770613){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e131/e2ce2377ac16741fa21f9b69e2360fad9d19fb80fbbcd90bfa44b9fc8c7b.png){: width="300" height="300" .w-50 .right}
 
 
-[용의자 X의 헌신 재인 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=34392453&traceid=V0-153&itemId=128363953&vendorItemId=3253963775)
+[용의자 X의 헌신 재인 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=34392453&traceid=V0-153&itemId=128363953&vendorItemId=3253963775)
 <br>
 - 할인율과 원래가격: 
 - 가격: 15,120원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=34392453&traceid=V0-153&itemId=128363953&vendorItemId=3253963775){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=34392453&traceid=V0-153&itemId=128363953&vendorItemId=3253963775){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/743c/b10680884e04be1124d3cc9d8b3481aac99d37fadc694f55c0ce62536c89.jpg){: width="300" height="300" .w-50 .left}
 
 
-[재인 용의자 X의 헌신 히가시노 게이고 마스크제공 단품 단품](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2348735841&traceid=V0-153&itemId=4073088898&vendorItemId=71135177612)
+[재인 용의자 X의 헌신 히가시노 게이고 마스크제공 단품 단품](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2348735841&traceid=V0-153&itemId=4073088898&vendorItemId=71135177612)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 15,120원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2348735841&traceid=V0-153&itemId=4073088898&vendorItemId=71135177612){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2348735841&traceid=V0-153&itemId=4073088898&vendorItemId=71135177612){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f176/9b07012f3e399f4c6bb0a9afa2b9fc46e738c7da1fab775c53695fd52d50.jpg){: width="300" height="300" .w-50 .right}
 
 
-[사은품용의자 X의 헌신 소설책](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6636485977&traceid=V0-153&itemId=15153187865&vendorItemId=82374690522)
+[사은품용의자 X의 헌신 소설책](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6636485977&traceid=V0-153&itemId=15153187865&vendorItemId=82374690522)
 <br>
 - 할인율과 원래가격: 
 - 가격: 15,120원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6636485977&traceid=V0-153&itemId=15153187865&vendorItemId=82374690522){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6636485977&traceid=V0-153&itemId=15153187865&vendorItemId=82374690522){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail-product-api/A00077021/61053949/67624923/main/9791136278630_L.jpg){: width="300" height="300" .w-50 .left}
 
 
-[방황하는 칼날히가시노 게이고 장편소설 하빌리스 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5913552473&traceid=V0-153&itemId=10460016209&vendorItemId=77741801421)
+[방황하는 칼날히가시노 게이고 장편소설 하빌리스 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5913552473&traceid=V0-153&itemId=10460016209&vendorItemId=77741801421)
 <br>
 - 할인율과 원래가격: 
 - 가격: 15,300원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5913552473&traceid=V0-153&itemId=10460016209&vendorItemId=77741801421){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5913552473&traceid=V0-153&itemId=10460016209&vendorItemId=77741801421){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9247/15fdba02b53f844a7e2e4155ac994de18d06512c9feb6121d5783895bc6e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아들아 시간을 낭비하기에는 인생이 너무 짧다 넥스웍 필립 체스터필드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4328670369&traceid=V0-153&itemId=5049674217&vendorItemId=72359402072)
+[아들아 시간을 낭비하기에는 인생이 너무 짧다 넥스웍 필립 체스터필드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4328670369&traceid=V0-153&itemId=5049674217&vendorItemId=72359402072)
 <br>
 - 할인율과 원래가격: 
 - 가격: 12,420원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4328670369&traceid=V0-153&itemId=5049674217&vendorItemId=72359402072){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4328670369&traceid=V0-153&itemId=5049674217&vendorItemId=72359402072){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7ba4/f04499a3b9e5d4d23b4e6abd087bbf16e6ec2c8e901def95dcb9f6c8bb75.jpg){: width="300" height="300" .w-50 .left}
 
 
-[가면산장 살인사건 재인 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=3680858&traceid=V0-153&itemId=18139310&vendorItemId=3050353642)
+[가면산장 살인사건 재인 히가시노 게이고](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=3680858&traceid=V0-153&itemId=18139310&vendorItemId=3050353642)
 <br>
 - 할인율과 원래가격: 
 - 가격: 15,120원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=3680858&traceid=V0-153&itemId=18139310&vendorItemId=3050353642){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=3680858&traceid=V0-153&itemId=18139310&vendorItemId=3050353642){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/21fe/431e28dea6abbc2f6f2b41066b626901a966db61aabf1bd3f09958a9161d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[봉제인형 살인사건 북플라자 다니엘 콜](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=41742338&traceid=V0-153&itemId=151846660&vendorItemId=3366806086)
+[봉제인형 살인사건 북플라자 다니엘 콜](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=41742338&traceid=V0-153&itemId=151846660&vendorItemId=3366806086)
 <br>
 - 할인율과 원래가격: 
 - 가격: 13,500원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=41742338&traceid=V0-153&itemId=151846660&vendorItemId=3366806086){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=41742338&traceid=V0-153&itemId=151846660&vendorItemId=3366806086){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/05/20/19/6/e742198e-70ce-4fc6-8a70-07dbf2ae5ec9.jpg){: width="300" height="300" .w-50 .left}
 
 
-[감정의 늪에서 빠져나오는 중입니다상처에 숨어버린 진짜 마음을 찾는 법 현대지성 다나카 요시코](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6532769230&traceid=V0-153&itemId=14515885471&vendorItemId=81758751287)
+[감정의 늪에서 빠져나오는 중입니다상처에 숨어버린 진짜 마음을 찾는 법 현대지성 다나카 요시코](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6532769230&traceid=V0-153&itemId=14515885471&vendorItemId=81758751287)
 <br>
 - 할인율과 원래가격: 
 - 가격: 11,700원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6532769230&traceid=V0-153&itemId=14515885471&vendorItemId=81758751287){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6532769230&traceid=V0-153&itemId=14515885471&vendorItemId=81758751287){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![용의자x의헌신 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f180/2dea529f1f399c056832a2e773878b1290c0ea16405b750005f5b5f9b7fb.jpg){: width="300" height="300" .w-50 .right}
 
 
-[재인히가시노 게이고 갈릴레오 시리즈 7권세트탐정 갈릴레오예지몽용의자 X의헌신성녀의 구제갈릴레오의 고뇌한여름의 방정식허상의 어릿광대](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6795329022&traceid=V0-153&itemId=16021775011&vendorItemId=83226170053)
+[재인히가시노 게이고 갈릴레오 시리즈 7권세트탐정 갈릴레오예지몽용의자 X의헌신성녀의 구제갈릴레오의 고뇌한여름의 방정식허상의 어릿광대](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6795329022&traceid=V0-153&itemId=16021775011&vendorItemId=83226170053)
 <br>
 - 할인율과 원래가격: 
 - 가격: 100,620원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6795329022&traceid=V0-153&itemId=16021775011&vendorItemId=83226170053){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6795329022&traceid=V0-153&itemId=16021775011&vendorItemId=83226170053){: .left}
 <br>
 <br>
 

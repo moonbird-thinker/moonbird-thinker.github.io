@@ -13,7 +13,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b65/8d2dc2cbf05ff3969361be5385f3c27f674e4e5c2ed9d06440d20195d673.png){: width="300" height="300" .w-50 .left}
 
 
-[NEW BALANCE 국내매장용 뉴발란스 MR530AD 화이트 NBPDDF707W 패션 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6942409022&traceid=V0-153&itemId=16839423197&vendorItemId=87335571494)
+[NEW BALANCE 국내매장용 뉴발란스 MR530AD 화이트 NBPDDF707W 패션 스니커즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6942409022&traceid=V0-153&itemId=16839423197&vendorItemId=87335571494)
 <br>
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: 86,590원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6942409022&traceid=V0-153&itemId=16839423197&vendorItemId=87335571494){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6942409022&traceid=V0-153&itemId=16839423197&vendorItemId=87335571494){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e6ad/b9626d5c40aa502a50d6057a19e5bc1f84cbe7207f74867c6a336960570e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[뉴발란스 530 화이트 MR530SG](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6750878635&traceid=V0-153&itemId=16891410918&vendorItemId=87247341640)
+[뉴발란스 530 화이트 MR530SG](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6750878635&traceid=V0-153&itemId=16891410918&vendorItemId=87247341640)
 <br>
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: 81,600원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6750878635&traceid=V0-153&itemId=16891410918&vendorItemId=87247341640){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6750878635&traceid=V0-153&itemId=16891410918&vendorItemId=87247341640){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/04/10/7/aac805dc-8456-4479-aee1-8d2b4352f6af.jpg){: width="300" height="300" .w-50 .left}
 
 
-[뉴발란스 베이직 컴포트 브라  팬티 세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7441912786&traceid=V0-153&itemId=19353752774&vendorItemId=86466939524)
+[뉴발란스 베이직 컴포트 브라  팬티 세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7441912786&traceid=V0-153&itemId=19353752774&vendorItemId=86466939524)
 <br>
 - 할인율과 원래가격: 
 - 가격: 39,460원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7441912786&traceid=V0-153&itemId=19353752774&vendorItemId=86466939524){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7441912786&traceid=V0-153&itemId=19353752774&vendorItemId=86466939524){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3744/4039fc22d0c04c973f5c01bbb657d3209d8c318da2fad5bb2a1239c3c030.jpg){: width="300" height="300" .w-50 .right}
 
 
-[뉴발란스 MR530KA 그레이 실버 남녀공용 운동화](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4847096774&traceid=V0-153&itemId=6270396646&vendorItemId=86984105695)
+[뉴발란스 MR530KA 그레이 실버 남녀공용 운동화](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4847096774&traceid=V0-153&itemId=6270396646&vendorItemId=86984105695)
 <br>
 - 할인율과 원래가격: 
 - 가격: 89,550원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=4847096774&traceid=V0-153&itemId=6270396646&vendorItemId=86984105695){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4847096774&traceid=V0-153&itemId=6270396646&vendorItemId=86984105695){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/74de/54d4693d3f0efed3f2ee2e51cda52b126323dc0a680b1ffaa17e23a80565.jpg){: width="300" height="300" .w-50 .left}
 
 
-[인디언 클래식 남성 스니커즈 2624](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6729197957&traceid=V0-153&itemId=15674120239&vendorItemId=83302735748)
+[인디언 클래식 남성 스니커즈 2624](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6729197957&traceid=V0-153&itemId=15674120239&vendorItemId=83302735748)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 59,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6729197957&traceid=V0-153&itemId=15674120239&vendorItemId=83302735748){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6729197957&traceid=V0-153&itemId=15674120239&vendorItemId=83302735748){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7182952298611202-f4368f0f-ee04-4265-9340-f2da70d28be6.jpg){: width="300" height="300" .w-50 .right}
 
 
-[에이룩 모노톤 발편한 남성 여성 초경량 운동화](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6654450152&traceid=V0-153&itemId=15257547371&vendorItemId=82478188132)
+[에이룩 모노톤 발편한 남성 여성 초경량 운동화](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6654450152&traceid=V0-153&itemId=15257547371&vendorItemId=82478188132)
 <br>
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: 37,700원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6654450152&traceid=V0-153&itemId=15257547371&vendorItemId=82478188132){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6654450152&traceid=V0-153&itemId=15257547371&vendorItemId=82478188132){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3744/4039fc22d0c04c973f5c01bbb657d3209d8c318da2fad5bb2a1239c3c030.jpg){: width="300" height="300" .w-50 .left}
 
 
-[NewBalance 뉴발란스 운동화 530 로우탑 스니커즈 스틸그레이 MR530KA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7395637792&traceid=V0-153&itemId=19130399718&vendorItemId=87456276835)
+[NewBalance 뉴발란스 운동화 530 로우탑 스니커즈 스틸그레이 MR530KA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7395637792&traceid=V0-153&itemId=19130399718&vendorItemId=87456276835)
 <br>
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: 95,820원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7395637792&traceid=V0-153&itemId=19130399718&vendorItemId=87456276835){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7395637792&traceid=V0-153&itemId=19130399718&vendorItemId=87456276835){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3744/4039fc22d0c04c973f5c01bbb657d3209d8c318da2fad5bb2a1239c3c030.jpg){: width="300" height="300" .w-50 .right}
 
 
-[국내매장판 뉴발란스 530 스틸그레이 MR530KA뉴발란스선물](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7629864012&traceid=V0-153&itemId=20247510175&vendorItemId=87326409442)
+[국내매장판 뉴발란스 530 스틸그레이 MR530KA뉴발란스선물](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7629864012&traceid=V0-153&itemId=20247510175&vendorItemId=87326409442)
 <br>
 - 할인율과 원래가격: 55%  65,600   원
 - 가격: 97,000원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7629864012&traceid=V0-153&itemId=20247510175&vendorItemId=87326409442){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7629864012&traceid=V0-153&itemId=20247510175&vendorItemId=87326409442){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a5c4/daace76cdc58eba0721db6cc8bb1b0aa2b3ce8d21c22fcdb383957ed7abb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[레이시스 남성 여성 다이얼 에어 런닝화 운동화 워킹화 트레킹화 신발 RA푸포파삼H](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7605766927&traceid=V0-153&itemId=20130946044&vendorItemId=87197466091)
+[레이시스 남성 여성 다이얼 에어 런닝화 운동화 워킹화 트레킹화 신발 RA푸포파삼H](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7605766927&traceid=V0-153&itemId=20130946044&vendorItemId=87197466091)
 <br>
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: 36,800원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7605766927&traceid=V0-153&itemId=20130946044&vendorItemId=87197466091){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7605766927&traceid=V0-153&itemId=20130946044&vendorItemId=87197466091){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![뉴발530 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3744/4039fc22d0c04c973f5c01bbb657d3209d8c318da2fad5bb2a1239c3c030.jpg){: width="300" height="300" .w-50 .right}
 
 
-[국내매장판 뉴발란스 530 스틸그레이 MR530KA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6719502817&traceid=V0-153&itemId=15560657192&vendorItemId=87326402567)
+[국내매장판 뉴발란스 530 스틸그레이 MR530KA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6719502817&traceid=V0-153&itemId=15560657192&vendorItemId=87326402567)
 <br>
 - 할인율과 원래가격: 61%  56,900   원
 - 가격: 149,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6719502817&traceid=V0-153&itemId=15560657192&vendorItemId=87326402567){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6719502817&traceid=V0-153&itemId=15560657192&vendorItemId=87326402567){: .left}
 <br>
 <br>
 

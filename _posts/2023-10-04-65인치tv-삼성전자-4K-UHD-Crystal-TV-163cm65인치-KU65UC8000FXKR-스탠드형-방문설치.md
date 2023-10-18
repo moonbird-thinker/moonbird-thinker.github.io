@@ -13,7 +13,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/6pwcbukl/d132a9c64eac4986857ad570d00d070a.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578)
+[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,013,970원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/26/10/3/17438ea4-f805-49a7-b787-7176e29afb9c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 4K QLED TV 163cm65인치 KQ65QC67AFXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+[삼성전자 4K QLED TV 163cm65인치 KQ65QC67AFXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,220,390원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/wocgnrte/632ccefde7f74b0792bf8f9b57c1b497.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 Crystal UHD TV 163cm65인치 KU65UC7000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+[삼성전자 Crystal UHD TV 163cm65인치 KU65UC7000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 1,020,250원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1314890401074687-d7e3b7a2-1b60-456a-a85a-fa70fe27b522.jpg){: width="300" height="300" .w-50 .right}
 
 
-[TCL 안드로이드11 4K UHD TV 165cm65인치 65P735 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6552509082&traceid=V0-153&itemId=14639304677&vendorItemId=81880795317)
+[TCL 안드로이드11 4K UHD TV 165cm65인치 65P735 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6552509082&traceid=V0-153&itemId=14639304677&vendorItemId=81880795317)
 <br>
 - 할인율과 원래가격: 
 - 가격: 648,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6552509082&traceid=V0-153&itemId=14639304677&vendorItemId=81880795317){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6552509082&traceid=V0-153&itemId=14639304677&vendorItemId=81880795317){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/3xrmaupw/42c5aafb013e4870a4d7a1b7d5723a47.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 벽걸이형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229527&vendorItemId=85363136586)
+[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 벽걸이형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229527&vendorItemId=85363136586)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,183,840원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229527&vendorItemId=85363136586){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229527&vendorItemId=85363136586){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6df6/31d5aab3434c3acf5acc15c3cbf097b65f49b410fddd88b430ab2f603c5d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[LG 올레드 OLED65WX 65인치 165cm 4K UHD 고화질 벽걸이 스마트 TV 티비 매장방문수령 02수도권 벽걸이 설치비포함OLED65WX](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7462741657&traceid=V0-153&itemId=19455291130&vendorItemId=85284647578)
+[LG 올레드 OLED65WX 65인치 165cm 4K UHD 고화질 벽걸이 스마트 TV 티비 매장방문수령 02수도권 벽걸이 설치비포함OLED65WX](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7462741657&traceid=V0-153&itemId=19455291130&vendorItemId=85284647578)
 <br>
 - 할인율과 원래가격: 
 - 가격: 4,536,000원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7462741657&traceid=V0-153&itemId=19455291130&vendorItemId=85284647578){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7462741657&traceid=V0-153&itemId=19455291130&vendorItemId=85284647578){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/6pwcbukl/d132a9c64eac4986857ad570d00d070a.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578)
+[삼성전자 4K UHD Crystal TV 163cm65인치 KU65UC8000FXKR 스탠드형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,013,970원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7203906682&traceid=V0-153&itemId=18215229525&vendorItemId=85363136578){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/006b/02545ba80dfa40f6b33d63306a1fecda335031d558a4a71ec7b4718003fd.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 TV 삼성물류무료설치 삼성 TV 모니터 유튜브 UHD 4K LED TV 에너지효율 1등급 판매처 세람 163cm65인치 스탠드형무료설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7597122141&traceid=V0-153&itemId=20088265942&vendorItemId=87288193969)
+[삼성전자 TV 삼성물류무료설치 삼성 TV 모니터 유튜브 UHD 4K LED TV 에너지효율 1등급 판매처 세람 163cm65인치 스탠드형무료설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7597122141&traceid=V0-153&itemId=20088265942&vendorItemId=87288193969)
 <br>
 - 할인율과 원래가격: 
 - 가격: 849,000원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7597122141&traceid=V0-153&itemId=20088265942&vendorItemId=87288193969){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7597122141&traceid=V0-153&itemId=20088265942&vendorItemId=87288193969){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/fe0zh8yf/9c1218fc70184d0ab2f224decdf986df.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 8K Neo QLED TV KQ85QNB800FXKR 방문설치 벽걸이형 214cm85인치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549)
+[삼성전자 8K Neo QLED TV KQ85QNB800FXKR 방문설치 벽걸이형 214cm85인치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549)
 <br>
 - 할인율과 원래가격: 
 - 가격: 10,054,000원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6530109082&traceid=V0-153&itemId=14581004991&vendorItemId=81823082549){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![65인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6d3c/946e86707b241dcbdef2063ce68c7ecb64b45bd0b7aca9ee697fd7b1090a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 43인치 사이니지TV 모니터 UHD 4K LED 1등급 LH43BEAHLGFXKR 163cm65인치 LH55BEAHLGFXKR 벽걸이형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7294533106&traceid=V0-153&itemId=13053756547&vendorItemId=86409039649)
+[삼성전자 43인치 사이니지TV 모니터 UHD 4K LED 1등급 LH43BEAHLGFXKR 163cm65인치 LH55BEAHLGFXKR 벽걸이형 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7294533106&traceid=V0-153&itemId=13053756547&vendorItemId=86409039649)
 <br>
 - 할인율과 원래가격: 
 - 가격: 904,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7294533106&traceid=V0-153&itemId=13053756547&vendorItemId=86409039649){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7294533106&traceid=V0-153&itemId=13053756547&vendorItemId=86409039649){: .left}
 <br>
 <br>
 

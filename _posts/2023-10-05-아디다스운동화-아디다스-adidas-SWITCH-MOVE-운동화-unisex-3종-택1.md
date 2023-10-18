@@ -13,7 +13,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cf41/7a65abbe97129c65417b7536d58f8b105bfa50bf6af7740e4dbda586d91f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아디다스 adidas SWITCH MOVE 운동화 unisex 3종 택1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7501746224&traceid=V0-153&itemId=19638685189&vendorItemId=86881612967)
+[아디다스 adidas SWITCH MOVE 운동화 unisex 3종 택1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7501746224&traceid=V0-153&itemId=19638685189&vendorItemId=86881612967)
 <br>
 - 할인율과 원래가격: 
 - 가격: 40,180원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7501746224&traceid=V0-153&itemId=19638685189&vendorItemId=86881612967){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7501746224&traceid=V0-153&itemId=19638685189&vendorItemId=86881612967){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/30/11/4/2aed08e1-9beb-4acf-bee2-c40212896436.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아디다스 스니커즈 H00576 X9000L1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7434250594&traceid=V0-153&itemId=19316243880&vendorItemId=86430449475)
+[아디다스 스니커즈 H00576 X9000L1](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7434250594&traceid=V0-153&itemId=19316243880&vendorItemId=86430449475)
 <br>
 - 할인율과 원래가격: 
 - 가격: 39,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7434250594&traceid=V0-153&itemId=19316243880&vendorItemId=86430449475){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7434250594&traceid=V0-153&itemId=19316243880&vendorItemId=86430449475){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/11/17/9/f901315b-84fc-4093-9e0c-903fc5d56c59.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아디다스 니짜 트레포일 운동화 FW5185](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7458722190&traceid=V0-153&itemId=19436028549&vendorItemId=86547168849)
+[아디다스 니짜 트레포일 운동화 FW5185](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7458722190&traceid=V0-153&itemId=19436028549&vendorItemId=86547168849)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 39,660원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7458722190&traceid=V0-153&itemId=19436028549&vendorItemId=86547168849){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7458722190&traceid=V0-153&itemId=19436028549&vendorItemId=86547168849){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d2c/af7580409edcf6d8f3da05caeb5947c4d8970acb79a98467689198e57013.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아디다스 매장정품 운동화 오리지널 SAMBA OG B75806](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=305817812&traceid=V0-153&itemId=964097101&vendorItemId=87304355873)
+[아디다스 매장정품 운동화 오리지널 SAMBA OG B75806](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=305817812&traceid=V0-153&itemId=964097101&vendorItemId=87304355873)
 <br>
 - 할인율과 원래가격: 
 - 가격: 70,270원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=305817812&traceid=V0-153&itemId=964097101&vendorItemId=87304355873){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=305817812&traceid=V0-153&itemId=964097101&vendorItemId=87304355873){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3fdf/37c1c76d8b41c2223d92fec4f1e7a9b2950dc89db1e08ce9061582d7e836.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아디다스 갤럭시 6 남성 운동화 GW4138](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6925323407&traceid=V0-153&itemId=16738222105&vendorItemId=84423912555)
+[아디다스 갤럭시 6 남성 운동화 GW4138](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6925323407&traceid=V0-153&itemId=16738222105&vendorItemId=84423912555)
 <br>
 - 할인율과 원래가격: 
 - 가격: 46,040원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6925323407&traceid=V0-153&itemId=16738222105&vendorItemId=84423912555){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6925323407&traceid=V0-153&itemId=16738222105&vendorItemId=84423912555){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e0b4/cb214f3118a5a94c3ebdf5898e2c2c8a5876f6e66be29c2b23fa04a343a8.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아놀드파마 남성 여성 다이얼 에어 운동화 런닝화 워킹화 스니커즈 신발 AP 바니트럼즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6442252972&traceid=V0-153&itemId=13949622371&vendorItemId=81198825356)
+[아놀드파마 남성 여성 다이얼 에어 운동화 런닝화 워킹화 스니커즈 신발 AP 바니트럼즈](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6442252972&traceid=V0-153&itemId=13949622371&vendorItemId=81198825356)
 <br>
 - 할인율과 원래가격: 
 - 가격: 38,210원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6442252972&traceid=V0-153&itemId=13949622371&vendorItemId=81198825356){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6442252972&traceid=V0-153&itemId=13949622371&vendorItemId=81198825356){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/552934132547931-0e25b7e3-0c1b-42e1-9299-d53bcd3cc9c2.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아디다스 아디제로 LJ M 운동화 EG6172](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6299477866&traceid=V0-153&itemId=13018038734&vendorItemId=80281082723)
+[아디다스 아디제로 LJ M 운동화 EG6172](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6299477866&traceid=V0-153&itemId=13018038734&vendorItemId=80281082723)
 <br>
 - 할인율과 원래가격: 
 - 가격: 26,230원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6299477866&traceid=V0-153&itemId=13018038734&vendorItemId=80281082723){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6299477866&traceid=V0-153&itemId=13018038734&vendorItemId=80281082723){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7112346798017627-2baa12ac-a563-4e93-b0a6-5ccea9ce1d29.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아디다스 남성용 마라톤 HM M 운동화 FY914](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6299477496&traceid=V0-153&itemId=13018036148&vendorItemId=80281080615)
+[아디다스 남성용 마라톤 HM M 운동화 FY914](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6299477496&traceid=V0-153&itemId=13018036148&vendorItemId=80281080615)
 <br>
 - 할인율과 원래가격: 
 - 가격: 61,370원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6299477496&traceid=V0-153&itemId=13018036148&vendorItemId=80281080615){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6299477496&traceid=V0-153&itemId=13018036148&vendorItemId=80281080615){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/63a4/045f43664e72d6b87871d9a24c922d336131129d7982d6ebbd758bc5192b.jpg){: width="300" height="300" .w-50 .left}
 
 
-[트리샤국산 남녀공용 캐주얼 스니커즈 운동화 CNK아리빅스](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7045877063&traceid=V0-153&itemId=17436560105&vendorItemId=85727376959)
+[트리샤국산 남녀공용 캐주얼 스니커즈 운동화 CNK아리빅스](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7045877063&traceid=V0-153&itemId=17436560105&vendorItemId=85727376959)
 <br>
 - 할인율과 원래가격: 
 - 가격: 39,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7045877063&traceid=V0-153&itemId=17436560105&vendorItemId=85727376959){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7045877063&traceid=V0-153&itemId=17436560105&vendorItemId=85727376959){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![아디다스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/37e5/18f55624e947f77f7c1e993ecd34626452d0f313a7284386f458484bba41.jpg){: width="300" height="300" .w-50 .right}
 
 
-[아디다스 런닝화 듀라모 10 WIDE M](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7075153385&traceid=V0-153&itemId=17582796232&vendorItemId=84749369479)
+[아디다스 런닝화 듀라모 10 WIDE M](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7075153385&traceid=V0-153&itemId=17582796232&vendorItemId=84749369479)
 <br>
 - 할인율과 원래가격: 
 - 가격: 57,400원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7075153385&traceid=V0-153&itemId=17582796232&vendorItemId=84749369479){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7075153385&traceid=V0-153&itemId=17582796232&vendorItemId=84749369479){: .left}
 <br>
 <br>
 

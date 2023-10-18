@@ -13,7 +13,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/29/14/1/28d3b371-2f8b-4afb-a396-d40c800a5c70.jpg){: width="300" height="300" .w-50 .left}
 
 
-[COX 엔데버 오리지널 레트로 PBT 무접점 텐키리스 키보드 50g ENDEAVOUR ORIGINAL Ivory White](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883)
+[COX 엔데버 오리지널 레트로 PBT 무접점 텐키리스 키보드 50g ENDEAVOUR ORIGINAL Ivory White](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 129,900원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5825177626222529-994f73bd-82f0-489e-b692-25927e1b980c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[한성컴퓨터 염료승화 EDITION 무접점 키보드 GK898B 일반형 TOY BLOCK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6931033124&traceid=V0-153&itemId=16770954087&vendorItemId=83952168625)
+[한성컴퓨터 염료승화 EDITION 무접점 키보드 GK898B 일반형 TOY BLOCK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6931033124&traceid=V0-153&itemId=16770954087&vendorItemId=83952168625)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 184,250원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6931033124&traceid=V0-153&itemId=16770954087&vendorItemId=83952168625){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6931033124&traceid=V0-153&itemId=16770954087&vendorItemId=83952168625){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5203975591665409-544f1a6b-30c1-4db0-8e81-0297bc07df18.jpg){: width="300" height="300" .w-50 .left}
 
 
-[한성컴퓨터 염료승화 EDITION 무접점 키보드 GK898B 일반형 Purple Heart](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6931033124&traceid=V0-153&itemId=16770954084&vendorItemId=83952168610)
+[한성컴퓨터 염료승화 EDITION 무접점 키보드 GK898B 일반형 Purple Heart](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6931033124&traceid=V0-153&itemId=16770954084&vendorItemId=83952168610)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 184,250원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6931033124&traceid=V0-153&itemId=16770954084&vendorItemId=83952168610){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6931033124&traceid=V0-153&itemId=16770954084&vendorItemId=83952168610){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/10/15/13/3/c1286ffa-e1b2-4bb6-9866-e16fb746437e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[hacker 이중사출 RGB 텐키리스 무접점 게이밍 키보드 55g KN01 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2280778962&traceid=V0-153&itemId=3916954539&vendorItemId=71901497108)
+[hacker 이중사출 RGB 텐키리스 무접점 게이밍 키보드 55g KN01 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2280778962&traceid=V0-153&itemId=3916954539&vendorItemId=71901497108)
 <br>
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: 100,500원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2280778962&traceid=V0-153&itemId=3916954539&vendorItemId=71901497108){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2280778962&traceid=V0-153&itemId=3916954539&vendorItemId=71901497108){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8843710914525526-f6f0fb88-dc66-4b78-a16c-6064b1fb3d5d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[앱코 HACKER 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 적축 화이트 K515 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=286652670&traceid=V0-153&itemId=18496615576&vendorItemId=5416920483)
+[앱코 HACKER 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 적축 화이트 K515 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=286652670&traceid=V0-153&itemId=18496615576&vendorItemId=5416920483)
 <br>
 - 할인율과 원래가격: 11%  299,000   원
 - 가격: 37,600원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=286652670&traceid=V0-153&itemId=18496615576&vendorItemId=5416920483){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=286652670&traceid=V0-153&itemId=18496615576&vendorItemId=5416920483){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/75431881489702-2d2ced19-3b8c-42a3-855c-b2bb355ce1d8.jpg){: width="300" height="300" .w-50 .right}
 
 
-[이큐메딕 항균 펜타그래프 저소음 유선 키보드 일반형 SanitizeK3 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6196887467&traceid=V0-153&itemId=12270448225&vendorItemId=79540887746)
+[이큐메딕 항균 펜타그래프 저소음 유선 키보드 일반형 SanitizeK3 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6196887467&traceid=V0-153&itemId=12270448225&vendorItemId=79540887746)
 <br>
 - 할인율과 원래가격: 37%  269,000   원
 - 가격: 30,600원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6196887467&traceid=V0-153&itemId=12270448225&vendorItemId=79540887746){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6196887467&traceid=V0-153&itemId=12270448225&vendorItemId=79540887746){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/03/14/3972231509/c39a3483-ee1e-4479-970a-5ca6057dcca0.jpg){: width="300" height="300" .w-50 .left}
 
 
-[앱코 HACKER 방수 프리미엄 무접점 게이밍 키보드 RGB PBT 45g K995P V3 화이트 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=136112364&traceid=V0-153&itemId=399032198&vendorItemId=3972231509)
+[앱코 HACKER 방수 프리미엄 무접점 게이밍 키보드 RGB PBT 45g K995P V3 화이트 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=136112364&traceid=V0-153&itemId=399032198&vendorItemId=3972231509)
 <br>
 - 할인율과 원래가격: 10%  369,000   원
 - 가격: 160,500원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=136112364&traceid=V0-153&itemId=399032198&vendorItemId=3972231509){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=136112364&traceid=V0-153&itemId=399032198&vendorItemId=3972231509){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/11/29/14/1/28d3b371-2f8b-4afb-a396-d40c800a5c70.jpg){: width="300" height="300" .w-50 .right}
 
 
-[COX 엔데버 오리지널 레트로 PBT 무접점 텐키리스 키보드 50g ENDEAVOUR ORIGINAL Ivory White](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883)
+[COX 엔데버 오리지널 레트로 PBT 무접점 텐키리스 키보드 50g ENDEAVOUR ORIGINAL Ivory White](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 129,900원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6956554256&traceid=V0-153&itemId=16919955727&vendorItemId=84097831883){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3b05/4c3dec8d125af2f67ed242884988a11a512941a3dd31bef5aadbbb980dd6.jpg){: width="300" height="300" .w-50 .left}
 
 
-[청연엠엔에스 나비 레인보우 RGB 키보드 NV143RKB10U 화이트 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7239045423&traceid=V0-153&itemId=18567067255&vendorItemId=85704367393)
+[청연엠엔에스 나비 레인보우 RGB 키보드 NV143RKB10U 화이트 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7239045423&traceid=V0-153&itemId=18567067255&vendorItemId=85704367393)
 <br>
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: 12,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7239045423&traceid=V0-153&itemId=18567067255&vendorItemId=85704367393){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7239045423&traceid=V0-153&itemId=18567067255&vendorItemId=85704367393){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![무접점키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/09/13/9/3/8ccd0da0-a2b9-4bd7-a015-aa1d5f5774a4.jpg){: width="300" height="300" .w-50 .right}
 
 
-[앱코 HACKER PBT RGB 무접점 유선키보드 45g KN10 블랙 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2154750914&traceid=V0-153&itemId=3659803091&vendorItemId=71645238556)
+[앱코 HACKER PBT RGB 무접점 유선키보드 45g KN10 블랙 일반형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2154750914&traceid=V0-153&itemId=3659803091&vendorItemId=71645238556)
 <br>
 - 할인율과 원래가격: 26%  329,000   원
 - 가격: 104,070원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2154750914&traceid=V0-153&itemId=3659803091&vendorItemId=71645238556){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2154750914&traceid=V0-153&itemId=3659803091&vendorItemId=71645238556){: .left}
 <br>
 <br>
 

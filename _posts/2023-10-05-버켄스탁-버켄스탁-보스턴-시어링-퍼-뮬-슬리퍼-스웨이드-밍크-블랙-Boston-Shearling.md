@@ -13,7 +13,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2639/553dc5b2efc1fd0b7984f8a9c604696ff2eaee02683ad8937386b87c436c.jpeg){: width="300" height="300" .w-50 .left}
 
 
-[버켄스탁 보스턴 시어링 퍼 뮬 슬리퍼 스웨이드 밍크 블랙 Boston Shearling](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5288834799&traceid=V0-153&itemId=7598248076&vendorItemId=74888754588)
+[버켄스탁 보스턴 시어링 퍼 뮬 슬리퍼 스웨이드 밍크 블랙 Boston Shearling](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5288834799&traceid=V0-153&itemId=7598248076&vendorItemId=74888754588)
 <br>
 - 할인율과 원래가격: 
 - 가격: 307,680원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5288834799&traceid=V0-153&itemId=7598248076&vendorItemId=74888754588){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5288834799&traceid=V0-153&itemId=7598248076&vendorItemId=74888754588){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/11/29/17/6/2336127b-95a9-44c5-bcbe-945f08099f24.jpg){: width="300" height="300" .w-50 .right}
 
 
-[버켄스탁 여성용 버클리 좁은발볼 FUR Buckley Suede Shearling 샌들 1020671](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6209396170&traceid=V0-153&itemId=12368753237&vendorItemId=79638545364)
+[버켄스탁 여성용 버클리 좁은발볼 FUR Buckley Suede Shearling 샌들 1020671](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6209396170&traceid=V0-153&itemId=12368753237&vendorItemId=79638545364)
 <br>
 - 할인율과 원래가격: 
 - 가격: 82,580원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6209396170&traceid=V0-153&itemId=12368753237&vendorItemId=79638545364){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6209396170&traceid=V0-153&itemId=12368753237&vendorItemId=79638545364){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aed7/3944791112ef6e58b69029df9fe08bc463a4a955a8746de71b37d01b4aca.jpg){: width="300" height="300" .w-50 .left}
 
 
-[버켄스탁보스턴 슬리퍼 플랫 보스톤 남녀공용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7601126984&traceid=V0-153&itemId=20107446023&vendorItemId=87202328757)
+[버켄스탁보스턴 슬리퍼 플랫 보스톤 남녀공용](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7601126984&traceid=V0-153&itemId=20107446023&vendorItemId=87202328757)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 76,200원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7601126984&traceid=V0-153&itemId=20107446023&vendorItemId=87202328757){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7601126984&traceid=V0-153&itemId=20107446023&vendorItemId=87202328757){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/11/29/17/4/bdc1777d-c67b-4e55-bb2a-3c13f51d97f3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[버켄스탁 여성용 버클리 보통발볼 FUR Buckley SuedeShearling 샌들 1021036](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6209396140&traceid=V0-153&itemId=12368753043&vendorItemId=79638545030)
+[버켄스탁 여성용 버클리 보통발볼 FUR Buckley SuedeShearling 샌들 1021036](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6209396140&traceid=V0-153&itemId=12368753043&vendorItemId=79638545030)
 <br>
 - 할인율과 원래가격: 
 - 가격: 158,190원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6209396140&traceid=V0-153&itemId=12368753043&vendorItemId=79638545030){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6209396140&traceid=V0-153&itemId=12368753043&vendorItemId=79638545030){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/da20/6a092dbe5ccf028fd2a8b0a00fa6961bf4b6bb96a35fdc800e695edd2f46.jpg){: width="300" height="300" .w-50 .left}
 
 
-[블랙무스탕 남녀공용 루크 커플 버클 버캔 슬리퍼 35cm](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6537018575&traceid=V0-153&itemId=14539672292&vendorItemId=83625492380)
+[블랙무스탕 남녀공용 루크 커플 버클 버캔 슬리퍼 35cm](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6537018575&traceid=V0-153&itemId=14539672292&vendorItemId=83625492380)
 <br>
 - 할인율과 원래가격: 
 - 가격: 19,980원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6537018575&traceid=V0-153&itemId=14539672292&vendorItemId=83625492380){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6537018575&traceid=V0-153&itemId=14539672292&vendorItemId=83625492380){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4ccb/412d2f4759ac700bb2839e193339c59a5a5224d25eaa454c6aa189078c21.jpg){: width="300" height="300" .w-50 .right}
 
 
-[푹신한 쿠션 통굽 버클 슬리퍼 취리히](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6359734845&traceid=V0-153&itemId=13421089329&vendorItemId=80675728863)
+[푹신한 쿠션 통굽 버클 슬리퍼 취리히](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6359734845&traceid=V0-153&itemId=13421089329&vendorItemId=80675728863)
 <br>
 - 할인율과 원래가격: 
 - 가격: 17,800원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6359734845&traceid=V0-153&itemId=13421089329&vendorItemId=80675728863){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6359734845&traceid=V0-153&itemId=13421089329&vendorItemId=80675728863){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/40da/dd229f3c7d734f76663111192b8c79147294c9ca45eee396f59eed9a32ae.jpg){: width="300" height="300" .w-50 .left}
 
 
-[버켄스탁 Birkenstock Arizona 시리즈 인조 스웨이드 더블 단추 쿨링 비치 샌들](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7414935961&traceid=V0-153&itemId=19220986410&vendorItemId=86337759867)
+[버켄스탁 Birkenstock Arizona 시리즈 인조 스웨이드 더블 단추 쿨링 비치 샌들](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7414935961&traceid=V0-153&itemId=19220986410&vendorItemId=86337759867)
 <br>
 - 할인율과 원래가격: 
 - 가격: 93,890원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7414935961&traceid=V0-153&itemId=19220986410&vendorItemId=86337759867){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7414935961&traceid=V0-153&itemId=19220986410&vendorItemId=86337759867){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d9cb/f57dc58feab6612fede4d8fd162a2d4c57e899ca6f09015f54f3adb91a30.jpg){: width="300" height="300" .w-50 .right}
 
 
-[남녀공용 푹신한 키높이 버켄 슬리퍼 2color](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5237722815&traceid=V0-153&itemId=7391319160&vendorItemId=74682497257)
+[남녀공용 푹신한 키높이 버켄 슬리퍼 2color](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5237722815&traceid=V0-153&itemId=7391319160&vendorItemId=74682497257)
 <br>
 - 할인율과 원래가격: 
 - 가격: 33,800원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5237722815&traceid=V0-153&itemId=7391319160&vendorItemId=74682497257){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5237722815&traceid=V0-153&itemId=7391319160&vendorItemId=74682497257){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/86da/887d18bb4a0890cd165d2881b7d49f9cb13fec3677d01f10f6b34fd3ebe5.jpg){: width="300" height="300" .w-50 .left}
 
 
-[남녀공용 슬리퍼 커플 아웃도어 캠핑 EVA 경량 쿠션 슬리퍼 SN283](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7299738279&traceid=V0-153&itemId=18677126326&vendorItemId=85927759338)
+[남녀공용 슬리퍼 커플 아웃도어 캠핑 EVA 경량 쿠션 슬리퍼 SN283](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7299738279&traceid=V0-153&itemId=18677126326&vendorItemId=85927759338)
 <br>
 - 할인율과 원래가격: 
 - 가격: 11,790원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7299738279&traceid=V0-153&itemId=18677126326&vendorItemId=85927759338){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7299738279&traceid=V0-153&itemId=18677126326&vendorItemId=85927759338){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![버켄스탁 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/11/10/1/a13fce85-10cd-4d69-9f5d-1c254f500e60.jpg){: width="300" height="300" .w-50 .right}
 
 
-[버켄스탁 유아용 파루 샌들 보통발볼 1019047](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5658129034&traceid=V0-153&itemId=9279200860&vendorItemId=76564749349)
+[버켄스탁 유아용 파루 샌들 보통발볼 1019047](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5658129034&traceid=V0-153&itemId=9279200860&vendorItemId=76564749349)
 <br>
 - 할인율과 원래가격: 
 - 가격: 17,210원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5658129034&traceid=V0-153&itemId=9279200860&vendorItemId=76564749349){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5658129034&traceid=V0-153&itemId=9279200860&vendorItemId=76564749349){: .left}
 <br>
 <br>
 

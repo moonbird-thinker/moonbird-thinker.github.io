@@ -13,7 +13,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/6c660789-da17-42c9-9e42-154a50623f63.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Abutagun 일본홋카이도유토리로 도야코 Yutorelo Toyako](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002752827&traceid=V0-153&itemId=None&vendorItemId=None)
+[Abutagun 일본홋카이도유토리로 도야코 Yutorelo Toyako](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002752827&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 330,050원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002752827&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002752827&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/8c6f81cf-4081-40ce-8205-260eb9868ff2.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Kyoto 일본교토부니시진 나라히 안 Nishijin Narahian](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002758165&traceid=V0-153&itemId=None&vendorItemId=None)
+[Kyoto 일본교토부니시진 나라히 안 Nishijin Narahian](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002758165&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 254,150원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002758165&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002758165&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/03dcb226-cd74-41d6-97ad-7c9a7183c1ee.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Kyoto 일본교토부교토 다카세가와 벳테이 Kyoto Takasegawa Bette](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002757851&traceid=V0-153&itemId=None&vendorItemId=None)
+[Kyoto 일본교토부교토 다카세가와 벳테이 Kyoto Takasegawa Bette](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002757851&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 12%  420,000   원
 - 가격: 374,900원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002757851&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002757851&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/70487f25-8448-4d6b-bd85-7855db3b43d1.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Ueda 일본나가노현료칸 나카노야 Bessho Onsen Ryokan Nakama](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743949&traceid=V0-153&itemId=None&vendorItemId=None)
+[Ueda 일본나가노현료칸 나카노야 Bessho Onsen Ryokan Nakama](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743949&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 408,250원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743949&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743949&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/6991c3f8-c83a-4f24-b1a1-686a781b36b3.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Kamigun 일본미야기현다비노야도 야쿠라이 린센칸 Yakurai Rinsenkan](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743941&traceid=V0-153&itemId=None&vendorItemId=None)
+[Kamigun 일본미야기현다비노야도 야쿠라이 린센칸 Yakurai Rinsenkan](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743941&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 278,300원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743941&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743941&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/45fc66f1-17f0-4aad-8fb8-9820af54e842.jpeg){: width="300" height="300" .w-50 .right}
 
 
-[Fukuoka 일본후쿠오카현슈퍼 호텔 로하스 하카타에키 치쿠시구치 Super Hotel](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002748702&traceid=V0-153&itemId=None&vendorItemId=None)
+[Fukuoka 일본후쿠오카현슈퍼 호텔 로하스 하카타에키 치쿠시구치 Super Hotel](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002748702&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 134,550원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002748702&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002748702&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/47eb9725-9470-4686-aaf2-ed9022a79a36.jpeg){: width="300" height="300" .w-50 .left}
 
 
-[Hosugun 일본이시카와현마와키 포레포레 Mawaki Porepore](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743231&traceid=V0-153&itemId=None&vendorItemId=None)
+[Hosugun 일본이시카와현마와키 포레포레 Mawaki Porepore](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743231&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 434,700원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002743231&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002743231&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/8464f441-58de-4399-b290-4682701a56f2.jpg){: width="300" height="300" .w-50 .right}
 
 
-[Kamiminochigun 일본나가노현작은호텔 카제코조 Chiisana Hotel Kaze Kozo](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002744097&traceid=V0-153&itemId=None&vendorItemId=None)
+[Kamiminochigun 일본나가노현작은호텔 카제코조 Chiisana Hotel Kaze Kozo](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002744097&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 274,850원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002744097&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002744097&traceid=V0-153&itemId=None&vendorItemId=None){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/travel_reactor/travelConnect/hotel/A00246702/ca9570ac-da9c-4653-9760-0625abbbd19c.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Osaka 일본오사카부호텔 소비알 오사카 Hotel Sobial Osaka Dome](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002757450&traceid=V0-153&itemId=None&vendorItemId=None)
+[Osaka 일본오사카부호텔 소비알 오사카 Hotel Sobial Osaka Dome](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002757450&traceid=V0-153&itemId=None&vendorItemId=None)
 <br>
 - 할인율과 원래가격: 
 - 가격: 152,950원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=10000002757450&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFTDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=10000002757450&traceid=V0-153&itemId=None&vendorItemId=None){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![일본여행 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8b62/7c7be3248896543bf1b4f839028a4a85f72cb2946cc444ff60dcee486c01.png){: width="300" height="300" .w-50 .right}
 
 
-[르로끄 여권 케이스 지갑 커버 파우치 5종](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7198710872&traceid=V0-153&itemId=18191249189&vendorItemId=85191049131)
+[르로끄 여권 케이스 지갑 커버 파우치 5종](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7198710872&traceid=V0-153&itemId=18191249189&vendorItemId=85191049131)
 <br>
 - 할인율과 원래가격: 
 - 가격: 13,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7198710872&traceid=V0-153&itemId=18191249189&vendorItemId=85191049131){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7198710872&traceid=V0-153&itemId=18191249189&vendorItemId=85191049131){: .left}
 <br>
 <br>
 

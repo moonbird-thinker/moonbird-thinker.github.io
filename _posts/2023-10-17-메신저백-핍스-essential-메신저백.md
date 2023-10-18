@@ -13,7 +13,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg){: width="300" height="300" .w-50 .left}
 
 
-[핍스 essential 메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
+[핍스 essential 메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
 <br>
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: 38,290원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[핍스 essential 메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
+[핍스 essential 메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
 <br>
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: 38,290원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a1ba/335ec7d6aafe383beb688b43792e931d9e5a98ba1361bb083be04ff7b4c7.jpg){: width="300" height="300" .w-50 .left}
 
 
-[크로스백 메신저백 숄더백 가방 남자가방 여자가방 여성 남성 노트북](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7636791139&traceid=V0-153&itemId=20280644321&vendorItemId=87367255618)
+[크로스백 메신저백 숄더백 가방 남자가방 여자가방 여성 남성 노트북](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7636791139&traceid=V0-153&itemId=20280644321&vendorItemId=87367255618)
 <br>
 - 할인율과 원래가격: 
 - 가격: 17,890원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7636791139&traceid=V0-153&itemId=20280644321&vendorItemId=87367255618){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7636791139&traceid=V0-153&itemId=20280644321&vendorItemId=87367255618){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/faa6/ffbb4fd71eb39f2c78fee3f1f611b615596dd1b54045aee94bc1117f3de3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[ANYOU 여성 리미엄 대용량 방수 메신저백 나일론 심플 여행 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7518141707&traceid=V0-153&itemId=19713110650&vendorItemId=87172030943)
+[ANYOU 여성 리미엄 대용량 방수 메신저백 나일론 심플 여행 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518141707&traceid=V0-153&itemId=19713110650&vendorItemId=87172030943)
 <br>
 - 할인율과 원래가격: 
 - 가격: 27,700원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7518141707&traceid=V0-153&itemId=19713110650&vendorItemId=87172030943){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518141707&traceid=V0-153&itemId=19713110650&vendorItemId=87172030943){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3736312926646612-7ccfeb1a-f190-46ce-bf25-13a969bf7740.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마르코폴로 홀른 방수 메신저백 MP4009](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816)
+[마르코폴로 홀른 방수 메신저백 MP4009](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 23,800원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/07/23/16/0/75ca81a2-8210-4611-aceb-6495570fb5bc.jpg){: width="300" height="300" .w-50 .right}
 
 
-[마르코폴로 랜드 크로스백 MP3028  키링 랜덤 발송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475)
+[마르코폴로 랜드 크로스백 MP3028  키링 랜덤 발송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475)
 <br>
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: 19,800원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aa55/af1b048a8f4bc9b1e9f797a3b7ffd75f6671dbd4b3cb36050f595992aea3.jpg){: width="300" height="300" .w-50 .left}
 
 
-[커플 메신저백 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 에펠메신져](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122)
+[커플 메신저백 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 에펠메신져](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122)
 <br>
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: 18,620원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cf7b/48c96d2fde50098e18151ef2a7bc2198141c473aa04ba604aab91bd14b05.jpg){: width="300" height="300" .w-50 .right}
 
 
-[커플 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 그릿메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283)
+[커플 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 그릿메신저백](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283)
 <br>
 - 할인율과 원래가격: 55%  65,600   원
 - 가격: 18,810원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5130462044984-87e7b628-e9fd-4734-9381-66d0039777d4.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마르코폴로 랜드 크로스백 MP3028  키링 랜덤 발송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=271535556&traceid=V0-153&itemId=853825786&vendorItemId=5167773428)
+[마르코폴로 랜드 크로스백 MP3028  키링 랜덤 발송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=271535556&traceid=V0-153&itemId=853825786&vendorItemId=5167773428)
 <br>
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: 19,800원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=271535556&traceid=V0-153&itemId=853825786&vendorItemId=5167773428){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=271535556&traceid=V0-153&itemId=853825786&vendorItemId=5167773428){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![메신저백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9cef/5ba5dc66a3540279c884424de5e24ecc3c746a7ff8e5ee9b27b51423ef49.jpg){: width="300" height="300" .w-50 .right}
 
 
-[더스위츠 에펠 메신저백 학생 학교 학원 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6651455832&traceid=V0-153&itemId=15242085236&vendorItemId=82488988923)
+[더스위츠 에펠 메신저백 학생 학교 학원 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6651455832&traceid=V0-153&itemId=15242085236&vendorItemId=82488988923)
 <br>
 - 할인율과 원래가격: 61%  56,900   원
 - 가격: 18,620원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6651455832&traceid=V0-153&itemId=15242085236&vendorItemId=82488988923){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6651455832&traceid=V0-153&itemId=15242085236&vendorItemId=82488988923){: .left}
 <br>
 <br>
 

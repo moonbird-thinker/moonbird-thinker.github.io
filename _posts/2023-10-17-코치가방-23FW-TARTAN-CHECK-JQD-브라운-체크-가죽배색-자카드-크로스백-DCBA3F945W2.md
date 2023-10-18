@@ -13,7 +13,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8bcc/e9ca2ebe76af66172d8e1a89260251ac5d645c9f3406ee635585b62b66e6.jpg){: width="300" height="300" .w-50 .left}
 
 
-[23FW TARTAN CHECK JQD 브라운 체크 가죽배색 자카드 크로스백 DCBA3F945W2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7374901729&traceid=V0-153&itemId=19032890645&vendorItemId=86156947059)
+[23FW TARTAN CHECK JQD 브라운 체크 가죽배색 자카드 크로스백 DCBA3F945W2](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7374901729&traceid=V0-153&itemId=19032890645&vendorItemId=86156947059)
 <br>
 - 할인율과 원래가격: 즉시할인가 68%  269,000   원
 - 가격: 268,940원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7374901729&traceid=V0-153&itemId=19032890645&vendorItemId=86156947059){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7374901729&traceid=V0-153&itemId=19032890645&vendorItemId=86156947059){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8893/c721c82c1812358ca75e51b0646b1b5c43b6d8a7b375d704f260484e1f01.jpg){: width="300" height="300" .w-50 .right}
 
 
-[코치 여성용 미니 제이미 크로스백 C9926 IMAA8](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7009315617&traceid=V0-153&itemId=17218554468&vendorItemId=84390393366)
+[코치 여성용 미니 제이미 크로스백 C9926 IMAA8](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7009315617&traceid=V0-153&itemId=17218554468&vendorItemId=84390393366)
 <br>
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: 219,000원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7009315617&traceid=V0-153&itemId=17218554468&vendorItemId=84390393366){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7009315617&traceid=V0-153&itemId=17218554468&vendorItemId=84390393366){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f984/f10ff65c6a95fedf443c2db2edf9fb20a2ca5184185a6442b8a41834726c.jpeg){: width="300" height="300" .w-50 .left}
 
 
-[미국직배송 COACH 코치 아울렛 호환 시그니처 여성가방 숄더백 토트백 5696](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6100167814&traceid=V0-153&itemId=11426143036&vendorItemId=78701734864)
+[미국직배송 COACH 코치 아울렛 호환 시그니처 여성가방 숄더백 토트백 5696](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6100167814&traceid=V0-153&itemId=11426143036&vendorItemId=78701734864)
 <br>
 - 할인율과 원래가격: 
 - 가격: 265,570원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6100167814&traceid=V0-153&itemId=11426143036&vendorItemId=78701734864){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6100167814&traceid=V0-153&itemId=11426143036&vendorItemId=78701734864){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ddfc/344aec3794b239da943aa4e09a3e50f8f55ce06522bccd20118d479a2087.jpg){: width="300" height="300" .w-50 .right}
 
 
-[코치 마라 호보백 CI790 IMBLK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7476157588&traceid=V0-153&itemId=19518167039&vendorItemId=86634978941)
+[코치 마라 호보백 CI790 IMBLK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7476157588&traceid=V0-153&itemId=19518167039&vendorItemId=86634978941)
 <br>
 - 할인율과 원래가격: 
 - 가격: 370,000원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7476157588&traceid=V0-153&itemId=19518167039&vendorItemId=86634978941){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7476157588&traceid=V0-153&itemId=19518167039&vendorItemId=86634978941){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8ef0/144b1525d9c1f58f71b0383148fb4a797a7912185cf40396cb9265d5ffed.jpg){: width="300" height="300" .w-50 .left}
 
 
-[여성 소프트 레더 패턴 숄더백 크로스백 가방 미니백 미니가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7481430847&traceid=V0-153&itemId=19543148923&vendorItemId=86385921071)
+[여성 소프트 레더 패턴 숄더백 크로스백 가방 미니백 미니가방](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7481430847&traceid=V0-153&itemId=19543148923&vendorItemId=86385921071)
 <br>
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: 41,900원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7481430847&traceid=V0-153&itemId=19543148923&vendorItemId=86385921071){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7481430847&traceid=V0-153&itemId=19543148923&vendorItemId=86385921071){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8db3/a7a8ae8b2e603f97a292cdb78b0f2e03611324b9abe663c7e24db12b61a2.jpeg){: width="300" height="300" .w-50 .right}
 
 
-[40대 여자 가방 브랜드 여성 가방 숄더백 40대50대 여성 가방 크로스백 소가죽 여성 가방 크로스백 소가죽 국산](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6670111826&traceid=V0-153&itemId=15342001179&vendorItemId=82562257562)
+[40대 여자 가방 브랜드 여성 가방 숄더백 40대50대 여성 가방 크로스백 소가죽 여성 가방 크로스백 소가죽 국산](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6670111826&traceid=V0-153&itemId=15342001179&vendorItemId=82562257562)
 <br>
 - 할인율과 원래가격: 즉시할인가 35%  169,900   원
 - 가격: 87,000원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6670111826&traceid=V0-153&itemId=15342001179&vendorItemId=82562257562){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6670111826&traceid=V0-153&itemId=15342001179&vendorItemId=82562257562){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c95b/9eb9e6213e70c0117435b9d53ff353b253ebb0e381eef0ca179d3149ae86.jpg){: width="300" height="300" .w-50 .left}
 
 
-[코치 여성 크로스백 CA069 IMBLK 미국직배송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699278185&traceid=V0-153&itemId=15511481716&vendorItemId=82730779854)
+[코치 여성 크로스백 CA069 IMBLK 미국직배송](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699278185&traceid=V0-153&itemId=15511481716&vendorItemId=82730779854)
 <br>
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: 179,500원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6699278185&traceid=V0-153&itemId=15511481716&vendorItemId=82730779854){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6699278185&traceid=V0-153&itemId=15511481716&vendorItemId=82730779854){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dd28/5a204a9c42c7519e05055cc316785099f73bea6ec7ab2629c63bcb95aa14.jpg){: width="300" height="300" .w-50 .right}
 
 
-[코치 케이티 사첼백블랙 2553 IMBLK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7023405148&traceid=V0-153&itemId=17306406542&vendorItemId=84616337965)
+[코치 케이티 사첼백블랙 2553 IMBLK](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7023405148&traceid=V0-153&itemId=17306406542&vendorItemId=84616337965)
 <br>
 - 할인율과 원래가격: 55%  65,600   원
 - 가격: 299,000원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7023405148&traceid=V0-153&itemId=17306406542&vendorItemId=84616337965){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7023405148&traceid=V0-153&itemId=17306406542&vendorItemId=84616337965){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a80f/6538350b371e51a8f5c302327443f6ca21b383f166013b0d7e03451ca19f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[제이에스티나 백 MANO MD 숄더 BK JHNCHA2BF327BK980](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6680716076&traceid=V0-153&itemId=15404738140&vendorItemId=82624636932)
+[제이에스티나 백 MANO MD 숄더 BK JHNCHA2BF327BK980](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6680716076&traceid=V0-153&itemId=15404738140&vendorItemId=82624636932)
 <br>
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: 111,200원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6680716076&traceid=V0-153&itemId=15404738140&vendorItemId=82624636932){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6680716076&traceid=V0-153&itemId=15404738140&vendorItemId=82624636932){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![코치가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7dd9/4394bba545c36b12b394b6d4c0602b4d2d8bce0e7d304c071d8d6f6677f3.jpg){: width="300" height="300" .w-50 .right}
 
 
-[버킷백여성가방 여성숄더백 대학생핸드백 리얼 가죽 가방선물 봉투 포장](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6965522089&traceid=V0-153&itemId=16972529238&vendorItemId=87376002628)
+[버킷백여성가방 여성숄더백 대학생핸드백 리얼 가죽 가방선물 봉투 포장](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6965522089&traceid=V0-153&itemId=16972529238&vendorItemId=87376002628)
 <br>
 - 할인율과 원래가격: 61%  56,900   원
 - 가격: 69,500원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6965522089&traceid=V0-153&itemId=16972529238&vendorItemId=87376002628){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6965522089&traceid=V0-153&itemId=16972529238&vendorItemId=87376002628){: .left}
 <br>
 <br>
 
