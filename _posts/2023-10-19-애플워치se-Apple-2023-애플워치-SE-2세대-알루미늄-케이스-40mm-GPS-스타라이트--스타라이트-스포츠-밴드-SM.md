@@ -1,0 +1,210 @@
+---
+title: "애플워치se TOP10 추천 - [10대][여성] Apple 2023 애플워치 SE 2세대 알루미늄 케이스 40mm GPS 스타라이트  스타라이트 스포츠 밴드 SM"
+author: Moon
+categories: shopping
+tags: [Top10, shopping]
+pin: true
+---
+
+해당 게시물에서는 [**분석도구**](https://itemscout.io/)를 이용하여 성별, 연령별 등의 데이터를 바탕으로 [**상품**](https://link.coupang.com/a/3KS6f)들을 추천해드리고 있습니다.
+
+### [1] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/09/18/16/1/f33f9821-ecfd-4404-80ef-2ff91a9b5957.jpg){: width="300" height="300" .w-50 .left}
+
+
+[Apple 2023 애플워치 SE 2세대 알루미늄 케이스 40mm GPS 스타라이트  스타라이트 스포츠 밴드 SM](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132572925&vendorItemId=87226505482)
+<br>
+- 할인율과 원래가격: 13%  369,000   원
+- 가격: 312,550원
+- star 평가: 5.0
+- 리뷰수: 1606
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132572925&vendorItemId=87226505482){: .right}
+<br>
+<br>
+
+---
+
+### [2] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/09/21/15/5/98a71c41-9091-4340-8cb8-291d92612333.jpg){: width="300" height="300" .w-50 .right}
+
+
+[Apple 2022 애플워치 SE 2세대 알루미늄 케이스 40mm GPS 실버  화이트 스포츠밴드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6790571369&traceid=V0-153&itemId=15997178744&vendorItemId=83202425009)
+<br>
+- 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
+- 가격: 359,000원
+- star 평가: 5.0
+- 리뷰수: 15876
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6790571369&traceid=V0-153&itemId=15997178744&vendorItemId=83202425009){: .left}
+<br>
+<br>
+
+---
+
+### [3] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bf72/aea0d71606b1fc9114febabe691d06797b8ece027d408c7d623e5f7eee48.jpg){: width="300" height="300" .w-50 .left}
+
+
+[블린즈 스마트워치 L12 3세대 통화 기능 19가지 운동모드 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7589972885&traceid=V0-153&itemId=20054358140&vendorItemId=87150500007)
+<br>
+- 할인율과 원래가격: 14%  329,000   원
+- 가격: 33,900원
+- star 평가: 5.0
+- 리뷰수: 1606
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7589972885&traceid=V0-153&itemId=20054358140&vendorItemId=87150500007){: .right}
+<br>
+<br>
+
+---
+
+### [4] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/09/18/16/1/316b5a69-b78c-4109-ab32-96258534bec6.jpg){: width="300" height="300" .w-50 .right}
+
+
+[Apple 2023 애플워치 SE 2세대 알루미늄 케이스 44mm GPS 미드나이트  미드나이트 스포츠 밴드 SM](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132573226&vendorItemId=87226505730)
+<br>
+- 할인율과 원래가격: 14%  329,000   원
+- 가격: 350,550원
+- star 평가: 5.0
+- 리뷰수: 1606
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132573226&vendorItemId=87226505730){: .left}
+<br>
+<br>
+
+---
+
+### [5] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6dfb/e4dcf8e3c85c683949c8d3cfd4c7979457e7d243b98895de57c99aeed45f.png){: width="300" height="300" .w-50 .left}
+
+
+[스마트 워치블루투스 통화음악 재생남녀 공용안드로이드 및 IOS 지원 골드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6529903950&traceid=V0-153&itemId=14499013271&vendorItemId=86702865992)
+<br>
+- 할인율과 원래가격: 10%  429,000   원
+- 가격: 64,900원
+- star 평가: 5.0
+- 리뷰수: 1675
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6529903950&traceid=V0-153&itemId=14499013271&vendorItemId=86702865992){: .right}
+<br>
+<br>
+
+---
+
+### [6] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0f7c/3ba7d1501d85f0970953672a38aa00201c36b69e92adf13b3f30003c1115.png){: width="300" height="300" .w-50 .right}
+
+
+[블라우풍트 스마트워치 실버 517mm](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6595646756&traceid=V0-153&itemId=14901036131&vendorItemId=82125542538)
+<br>
+- 할인율과 원래가격: 13%  469,000   원
+- 가격: 57,000원
+- star 평가: 5.0
+- 리뷰수: 1675
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6595646756&traceid=V0-153&itemId=14901036131&vendorItemId=82125542538){: .left}
+<br>
+<br>
+
+---
+
+### [7] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4698730193459133-041f598c-3ea1-437e-9f18-b3c07d4e709a.jpg){: width="300" height="300" .w-50 .left}
+
+
+[Apple 애플워치 SE 40mm GPSCellular 실버 알루미늄 케이스 어비스블루 스포츠 밴드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7057472950&traceid=V0-153&itemId=11356740761&vendorItemId=78633105739)
+<br>
+- 할인율과 원래가격: 13%  369,000   원
+- 가격: 323,960원
+- star 평가: 5.0
+- 리뷰수: 1606
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7057472950&traceid=V0-153&itemId=11356740761&vendorItemId=78633105739){: .right}
+<br>
+<br>
+
+---
+
+### [8] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/09/18/16/7/fbad2e85-49cd-4a9c-ad44-643e4b33484f.jpg){: width="300" height="300" .w-50 .right}
+
+
+[Apple 2023 애플워치 SE 2세대 알루미늄 케이스 40mm GPS 실버  스톰 블루 스포츠 밴드 SM](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132573463&vendorItemId=87226506074)
+<br>
+- 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
+- 가격: 329,000원
+- star 평가: 5.0
+- 리뷰수: 15876
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7606087908&traceid=V0-153&itemId=20132573463&vendorItemId=87226506074){: .left}
+<br>
+<br>
+
+---
+
+### [9] 애플워치se 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![애플워치se TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2cfe/1445e814b67e635b6988e07fec564de2f534f0d768dbe67bd8877d635c09.jpg){: width="300" height="300" .w-50 .left}
+
+
+[아이메이드잇 애플워치 호환 로이스 메탈 스트랩  풀커버 보호 일체형 케이스 실버](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7182931708&traceid=V0-153&itemId=18119577025&vendorItemId=85285801851)
+<br>
+- 할인율과 원래가격: 즉시할인가 72%  198,000   원
+- 가격: 23,590원
+- star 평가: 4.0
+- 리뷰수: 779
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7182931708&traceid=V0-153&itemId=18119577025&vendorItemId=85285801851){: .right}
+<br>
+<br>
+
+---
+
+### [10] 애플워치se 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![애플워치se TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/383840517281679-2f243010-6afe-4e95-a13d-5cd472e0abb3.jpg){: width="300" height="300" .w-50 .right}
+
+
+[Apple 2022 애플워치 SE 2세대 알루미늄 케이스 40mm GPS 스타라이트  스타라이트 스포츠 밴드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6790571369&traceid=V0-153&itemId=15997176134&vendorItemId=83202422541)
+<br>
+- 할인율과 원래가격: 29%  329,000   원
+- 가격: 329,000원
+- star 평가: 5.0
+- 리뷰수: 15876
+<br>
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6790571369&traceid=V0-153&itemId=15997176134&vendorItemId=83202422541){: .left}
+<br>
+<br>
+
+---
+<br><br><br><br><br> [💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/3KS6f){: .right}
