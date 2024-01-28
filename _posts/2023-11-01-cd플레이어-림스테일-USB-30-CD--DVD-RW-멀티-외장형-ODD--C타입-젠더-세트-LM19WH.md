@@ -49,7 +49,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1165335741251223-2cb11285-c3a5-48cd-982e-d143fa5bd098.jpg){: width="300" height="300" .w-50 .left}
 
 
-[림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
+[림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
 <br>
 - 할인율과 원래가격: 
 - 가격: 24,500원
@@ -58,7 +58,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599){: .right}
 <br>
 <br>
 
@@ -69,7 +69,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
+[에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 <br>
 - 할인율과 원래가격: 14%  69,710   원
 - 가격: 59,800원
@@ -78,7 +78,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797){: .left}
 <br>
 <br>
 
@@ -89,7 +89,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3234487405115355-5f993208-1ad9-4162-be6f-72f239609cbe.jpg){: width="300" height="300" .w-50 .left}
 
 
-[에듀플레이어 벽걸이 CD 플레이어, NEW EA10, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
+[에듀플레이어 벽걸이 CD 플레이어, NEW EA10, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
 <br>
 - 할인율과 원래가격: 16%  59,800   원
 - 가격: 49,800원
@@ -98,7 +98,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126){: .right}
 <br>
 <br>
 
@@ -109,7 +109,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg){: width="300" height="300" .w-50 .right}
 
 
-[인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
+[인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 <br>
 - 할인율과 원래가격: 
 - 가격: 59,790원
@@ -118,7 +118,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760){: .left}
 <br>
 <br>
 
@@ -129,7 +129,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cea6/90015b4c7b63ab3f200ad4fc59e1275d586037d568f02993c3fc5efd1eec.jpg){: width="300" height="300" .w-50 .left}
 
 
-[노트케이스 USB 3.0 DVD RW 멀티 외장형 ODD, NC-MULTI8X(화이트)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666)
+[노트케이스 USB 3.0 DVD RW 멀티 외장형 ODD, NC-MULTI8X(화이트)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666)
 <br>
 - 할인율과 원래가격: 즉시할인가 24%  30,500   원
 - 가격: 22,900원
@@ -138,7 +138,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666){: .right}
 <br>
 <br>
 
@@ -149,7 +149,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d2c0/04dbb69aa7e3c93697dd54dfd74f5cf40ff4f751a5870f1e04951ced3c32.jpg){: width="300" height="300" .w-50 .right}
 
 
-[투랩 턴테이블 블루투스 스피커, TL-29, 그린](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7102242628&traceid=V0-153&itemId=17731451344&vendorItemId=84896163242)
+[투랩 턴테이블 블루투스 스피커, TL-29, 그린](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7102242628&traceid=V0-153&itemId=17731451344&vendorItemId=84896163242)
 <br>
 - 할인율과 원래가격: 
 - 가격: 38,750원
@@ -158,7 +158,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7102242628&traceid=V0-153&itemId=17731451344&vendorItemId=84896163242){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7102242628&traceid=V0-153&itemId=17731451344&vendorItemId=84896163242){: .left}
 <br>
 <br>
 
@@ -169,7 +169,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/07/23/9/5/9393e338-7f19-46d1-8565-97df272d3663.jpg){: width="300" height="300" .w-50 .left}
 
 
-[아남 포터블 CD 플레이어, A-87, 레드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
+[아남 포터블 CD 플레이어, A-87, 레드](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
 <br>
 - 할인율과 원래가격: 5%  44,350   원
 - 가격: 41,990원
@@ -178,7 +178,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918){: .right}
 <br>
 <br>
 
@@ -189,7 +189,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/05/14/11/0/b575b86e-1701-4e72-8506-50336cfd9465.jpg){: width="300" height="300" .w-50 .right}
 
 
-[인비오 블루투스 CD 플레이어, IV-CD100](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
+[인비오 블루투스 CD 플레이어, IV-CD100](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442)
 <br>
 - 할인율과 원래가격: 
 - 가격: 58,890원
@@ -198,7 +198,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1596366339&traceid=V0-153&itemId=2727333325&vendorItemId=70717520442){: .left}
 <br>
 <br>
 
@@ -209,7 +209,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/506650623421063-a199c758-1e83-4402-8dd0-33d7e81375f1.jpg){: width="300" height="300" .w-50 .left}
 
 
-[인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129)
+[인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129)
 <br>
 - 할인율과 원래가격: 
 - 가격: 99,000원
@@ -218,7 +218,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129){: .right}
 <br>
 <br>
 
@@ -229,7 +229,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 ![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/08/26/23/1/d29de0a9-0506-44f4-8a55-994e656ffb38.jpg){: width="300" height="300" .w-50 .right}
 
 
-[에듀플레이어 휴대용 DVD 플레이어, EDP95BT(핑크)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2052058518&traceid=V0-153&itemId=3488631020&vendorItemId=71474902130)
+[에듀플레이어 휴대용 DVD 플레이어, EDP95BT(핑크)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2052058518&traceid=V0-153&itemId=3488631020&vendorItemId=71474902130)
 <br>
 - 할인율과 원래가격: 즉시할인가 52%  169,000   원
 - 가격: 81,120원
@@ -238,7 +238,7 @@ CD플레이어를 구매할 때는 다음과 같은 사항을 고려하는 것�
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2052058518&traceid=V0-153&itemId=3488631020&vendorItemId=71474902130){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2052058518&traceid=V0-153&itemId=3488631020&vendorItemId=71474902130){: .left}
 <br>
 <br>
 

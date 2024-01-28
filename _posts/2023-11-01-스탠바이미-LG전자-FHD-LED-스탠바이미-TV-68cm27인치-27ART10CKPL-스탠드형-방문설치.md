@@ -36,7 +36,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1157099712682444-0a678ede-6423-4227-be47-8995194f2273.jpg){: width="300" height="300" .w-50 .left}
 
 
-[LG전자 FHD LED 스탠바이미 TV, 68cm(27인치), 27ART10CKPL, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7621850673&traceid=V0-153&itemId=20209464294&vendorItemId=86616756296)
+[LG전자 FHD LED 스탠바이미 TV, 68cm(27인치), 27ART10CKPL, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7621850673&traceid=V0-153&itemId=20209464294&vendorItemId=86616756296)
 <br>
 - 할인율과 원래가격: 7%  1,027,940   원
 - 가격: 946,500원
@@ -45,7 +45,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7621850673&traceid=V0-153&itemId=20209464294&vendorItemId=86616756296){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7621850673&traceid=V0-153&itemId=20209464294&vendorItemId=86616756296){: .right}
 <br>
 <br>
 
@@ -56,7 +56,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/knqamy7l/5896034c03984ac2b915cd54ccb4966a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[LG전자 FHD LED 스탠바이미 Go TV, 68cm, 27LX5QKNA, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7406016915&traceid=V0-153&itemId=19178586516&vendorItemId=86296515006)
+[LG전자 FHD LED 스탠바이미 Go TV, 68cm, 27LX5QKNA, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7406016915&traceid=V0-153&itemId=19178586516&vendorItemId=86296515006)
 <br>
 - 할인율과 원래가격: 쿠폰할인가 2%  1,127,000   원
 - 가격: 1,100,020원
@@ -65,7 +65,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7406016915&traceid=V0-153&itemId=19178586516&vendorItemId=86296515006){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7406016915&traceid=V0-153&itemId=19178586516&vendorItemId=86296515006){: .left}
 <br>
 <br>
 
@@ -76,7 +76,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e4b0/d7fe1ef7acbf5617157a51dd406f261c964207611d02c7c6a4cf118bb1ef.jpg){: width="300" height="300" .w-50 .left}
 
 
-[라익미 스마트 넘버11 안드로이드 TV 오프화이트 43인치 4K UHD VA패널 넷플릭스 디즈니+ 에너지소비효율 1등급 프리미엄 8년 A/S 보장 2023년형, 라익미 스마트 넘버11 V430 오프화이트, 스탠드형, 108cm(43인치), 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7280191244&traceid=V0-153&itemId=18585484101&vendorItemId=84848110173)
+[라익미 스마트 넘버11 안드로이드 TV 오프화이트 43인치 4K UHD VA패널 넷플릭스 디즈니+ 에너지소비효율 1등급 프리미엄 8년 A/S 보장 2023년형, 라익미 스마트 넘버11 V430 오프화이트, 스탠드형, 108cm(43인치), 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7280191244&traceid=V0-153&itemId=18585484101&vendorItemId=84848110173)
 <br>
 - 할인율과 원래가격: 24%  500,000   원
 - 가격: 379,000원
@@ -85,7 +85,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7280191244&traceid=V0-153&itemId=18585484101&vendorItemId=84848110173){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7280191244&traceid=V0-153&itemId=18585484101&vendorItemId=84848110173){: .right}
 <br>
 <br>
 
@@ -96,7 +96,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8094/43fc4904266e40cc42d24a334259a3f4ba1c660b919a070fd47cbf33a1d0.jpg){: width="300" height="300" .w-50 .right}
 
 
-[LG전자 FHD 프라이빗 스마트스크린 스탠바이미 TV, 68cm(27인치), 27ART10AKPL, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7473992038&traceid=V0-153&itemId=19507817474&vendorItemId=87050823510)
+[LG전자 FHD 프라이빗 스마트스크린 스탠바이미 TV, 68cm(27인치), 27ART10AKPL, 스탠드형, 방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473992038&traceid=V0-153&itemId=19507817474&vendorItemId=87050823510)
 <br>
 - 할인율과 원래가격: 25%  1,290,000   원
 - 가격: 959,000원
@@ -105,7 +105,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7473992038&traceid=V0-153&itemId=19507817474&vendorItemId=87050823510){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473992038&traceid=V0-153&itemId=19507817474&vendorItemId=87050823510){: .left}
 <br>
 <br>
 
@@ -116,7 +116,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5a2a/00c7221a6cc06b403f96f7a103579db67d3f87b544bbf2f94627a387c914.jpg){: width="300" height="300" .w-50 .left}
 
 
-[마블스 삼탠바이미 룸앤 티비 삼성 M5 M7 TV 27인치 32인치 이동 각도 높이 조절 거치대 스탠드 삼텐바이미, 삼탠(S27BM500)(S32BM501), 3.프리미엄, 퓨어 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6890832444&traceid=V0-153&itemId=16542296017&vendorItemId=83775515289)
+[마블스 삼탠바이미 룸앤 티비 삼성 M5 M7 TV 27인치 32인치 이동 각도 높이 조절 거치대 스탠드 삼텐바이미, 삼탠(S27BM500)(S32BM501), 3.프리미엄, 퓨어 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6890832444&traceid=V0-153&itemId=16542296017&vendorItemId=83775515289)
 <br>
 - 할인율과 원래가격: 18%  136,700   원
 - 가격: 111,730원
@@ -125,7 +125,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6890832444&traceid=V0-153&itemId=16542296017&vendorItemId=83775515289){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6890832444&traceid=V0-153&itemId=16542296017&vendorItemId=83775515289){: .right}
 <br>
 <br>
 
@@ -136,7 +136,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e1e6/97f72e1088580fd0245ababe12cf5fc2b27e49d8c512b094520ce4eae32e.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 75인치 LED 비즈니스TV 4K UHD LH75BECHL 에너지효율 1등급, 스탠드형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7581526191&traceid=V0-153&itemId=20014504968&vendorItemId=87111326134)
+[삼성전자 75인치 LED 비즈니스TV 4K UHD LH75BECHL 에너지효율 1등급, 스탠드형](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7581526191&traceid=V0-153&itemId=20014504968&vendorItemId=87111326134)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,199,000원
@@ -145,7 +145,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7581526191&traceid=V0-153&itemId=20014504968&vendorItemId=87111326134){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7581526191&traceid=V0-153&itemId=20014504968&vendorItemId=87111326134){: .left}
 <br>
 <br>
 
@@ -156,7 +156,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/209b/daeead036a12cf47fa765a23f1e467828ddcbe0f2cc4dd34aa5c6898beab.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 32인치 IPTV M5 스마트 모니터 S32CM500E + M5 전용스탠드 패키지 삼탠바이미 카멜마운트 SMB32, 모니터(블랙)+스탠드(블랙)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7662683923&traceid=V0-153&itemId=20418936486&vendorItemId=85805963467)
+[삼성전자 32인치 IPTV M5 스마트 모니터 S32CM500E + M5 전용스탠드 패키지 삼탠바이미 카멜마운트 SMB32, 모니터(블랙)+스탠드(블랙)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7662683923&traceid=V0-153&itemId=20418936486&vendorItemId=85805963467)
 <br>
 - 할인율과 원래가격: 20%  500,000   원
 - 가격: 399,000원
@@ -165,7 +165,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7662683923&traceid=V0-153&itemId=20418936486&vendorItemId=85805963467){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7662683923&traceid=V0-153&itemId=20418936486&vendorItemId=85805963467){: .right}
 <br>
 <br>
 
@@ -176,7 +176,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8d8d/29d19e5366cec6b3f56fe5c4c200390b709222b0236b9830a2c61285cfa9.jpg){: width="300" height="300" .w-50 .right}
 
 
-[LG전자 27ART10CKPL 68cm 스탠바이미, 단품, 스탠드형, 고객직접설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7621850673&traceid=V0-153&itemId=19667787592&vendorItemId=86914419805)
+[LG전자 27ART10CKPL 68cm 스탠바이미, 단품, 스탠드형, 고객직접설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7621850673&traceid=V0-153&itemId=19667787592&vendorItemId=86914419805)
 <br>
 - 할인율과 원래가격: 
 - 가격: 959,000원
@@ -185,7 +185,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7621850673&traceid=V0-153&itemId=19667787592&vendorItemId=86914419805){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7621850673&traceid=V0-153&itemId=19667787592&vendorItemId=86914419805){: .left}
 <br>
 <br>
 
@@ -196,7 +196,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/735d/cca924d4e50171c5229a917477e5f2124cd50e10d9288cc2e0ad4c25ac19.jpg){: width="300" height="300" .w-50 .left}
 
 
-[OTC 75인치TV UHD 4K LEDTV 에너지효율1등급 중소기업TV KJT7500UHD HDR / 홈씨씨 인천점 입점, 1) 수도권 (서울.경기.인천), 1) 본사 스탠드방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7632975114&traceid=V0-153&itemId=20262812452&vendorItemId=87043192031)
+[OTC 75인치TV UHD 4K LEDTV 에너지효율1등급 중소기업TV KJT7500UHD HDR / 홈씨씨 인천점 입점, 1) 수도권 (서울.경기.인천), 1) 본사 스탠드방문설치](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7632975114&traceid=V0-153&itemId=20262812452&vendorItemId=87043192031)
 <br>
 - 할인율과 원래가격: 17%  899,000   원
 - 가격: 739,000원
@@ -205,7 +205,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7632975114&traceid=V0-153&itemId=20262812452&vendorItemId=87043192031){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7632975114&traceid=V0-153&itemId=20262812452&vendorItemId=87043192031){: .right}
 <br>
 <br>
 
@@ -216,7 +216,7 @@ pin: true
 ![스탠바이미 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/efec/659ff15022e366cdbe5e19f3e3a1796654469e71da6a29f01c141626b06c.jpg){: width="300" height="300" .w-50 .right}
 
 
-[무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 고객자가설치(택배배송), EKW24FMA11, 고객직접설치, 스탠드형, 60.4cm(24인치)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=86006663200)
+[무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 고객자가설치(택배배송), EKW24FMA11, 고객직접설치, 스탠드형, 60.4cm(24인치)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=86006663200)
 <br>
 - 할인율과 원래가격: 쿠폰할인가 42%  519,000   원
 - 가격: 296,000원
@@ -225,7 +225,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=86006663200){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=86006663200){: .left}
 <br>
 <br>
 

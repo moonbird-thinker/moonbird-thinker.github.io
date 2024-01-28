@@ -52,7 +52,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ff55/e8b68e1a2eab2e6627d9627cd8d321ab78d96abb4bb23bda9bbb5d2ec111.png){: width="300" height="300" .w-50 .left}
 
 
-[로보락 S8 plus S8 Pro Ultra 먼지봉투, 10매](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7429658988&traceid=V0-153&itemId=19255895635&vendorItemId=86371350844)
+[로보락 S8 plus S8 Pro Ultra 먼지봉투, 10매](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7429658988&traceid=V0-153&itemId=19255895635&vendorItemId=86371350844)
 <br>
 - 할인율과 원래가격: 54%  29,900   원
 - 가격: 13,500원
@@ -61,7 +61,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7429658988&traceid=V0-153&itemId=19255895635&vendorItemId=86371350844){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7429658988&traceid=V0-153&itemId=19255895635&vendorItemId=86371350844){: .right}
 <br>
 <br>
 
@@ -72,7 +72,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3e67/00fe7f9637e1b151f76d632ccee1151d9f03a87ce866583b8cc616db5bbe.jpg){: width="300" height="300" .w-50 .right}
 
 
-[[멋진공간] 호환 로보락 S8 pro Ultra 물걸레 사이드브러쉬 필터 듀얼메인브러쉬 더스트백 세트, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7408724695&traceid=V0-153&itemId=19191398696&vendorItemId=86308967044)
+[[멋진공간] 호환 로보락 S8 pro Ultra 물걸레 사이드브러쉬 필터 듀얼메인브러쉬 더스트백 세트, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7408724695&traceid=V0-153&itemId=19191398696&vendorItemId=86308967044)
 <br>
 - 할인율과 원래가격: 40%  50,000   원
 - 가격: 29,900원
@@ -81,7 +81,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7408724695&traceid=V0-153&itemId=19191398696&vendorItemId=86308967044){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7408724695&traceid=V0-153&itemId=19191398696&vendorItemId=86308967044){: .left}
 <br>
 <br>
 
@@ -92,7 +92,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/08/9/7/c1a99312-d395-4f5a-863a-0c623993aa5f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[로보락 S7 Max Ultra 로봇청소기 Q100TSC, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430)
+[로보락 S7 Max Ultra 로봇청소기 Q100TSC, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430)
 <br>
 - 할인율과 원래가격: 3%  1,540,000   원
 - 가격: 1,490,000원
@@ -101,7 +101,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430){: .right}
 <br>
 <br>
 
@@ -112,7 +112,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/08/9/7/c1a99312-d395-4f5a-863a-0c623993aa5f.jpg){: width="300" height="300" .w-50 .right}
 
 
-[로보락 S7 Max Ultra 로봇청소기 Q100TSC, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430)
+[로보락 S7 Max Ultra 로봇청소기 Q100TSC, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430)
 <br>
 - 할인율과 원래가격: 3%  1,540,000   원
 - 가격: 1,490,000원
@@ -121,7 +121,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7387302173&traceid=V0-153&itemId=19092540938&vendorItemId=86213444430){: .left}
 <br>
 <br>
 
@@ -132,7 +132,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a481/5f9c1b208320e80b1625222eb294ad44b7e5b92678da930844f02262aaee.jpg){: width="300" height="300" .w-50 .left}
 
 
-[[선착순 100명 한정 쿠팡특가 이벤트] 클리엔 T24 살균 물걸레 로봇청소기, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7684639229&traceid=V0-153&itemId=20533513436&vendorItemId=86458167631)
+[[선착순 100명 한정 쿠팡특가 이벤트] 클리엔 T24 살균 물걸레 로봇청소기, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7684639229&traceid=V0-153&itemId=20533513436&vendorItemId=86458167631)
 <br>
 - 할인율과 원래가격: 52%  1,599,000   원
 - 가격: 760,000원
@@ -141,7 +141,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7684639229&traceid=V0-153&itemId=20533513436&vendorItemId=86458167631){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7684639229&traceid=V0-153&itemId=20533513436&vendorItemId=86458167631){: .right}
 <br>
 <br>
 
@@ -152,7 +152,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/68c1/9b0f60cc5a8707da88b5099b8372351d4fb5c72de78059044923fa71b205.png){: width="300" height="300" .w-50 .right}
 
 
-[로보락 S8 Pro Ultra 물걸레 호환 듀얼음파진동 전용 10매, 고급형 그레이, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7432652427&traceid=V0-153&itemId=19307744833&vendorItemId=86422065981)
+[로보락 S8 Pro Ultra 물걸레 호환 듀얼음파진동 전용 10매, 고급형 그레이, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7432652427&traceid=V0-153&itemId=19307744833&vendorItemId=86422065981)
 <br>
 - 할인율과 원래가격: 쿠폰할인가 41%  29,900   원
 - 가격: 17,400원
@@ -161,7 +161,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7432652427&traceid=V0-153&itemId=19307744833&vendorItemId=86422065981){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7432652427&traceid=V0-153&itemId=19307744833&vendorItemId=86422065981){: .left}
 <br>
 <br>
 
@@ -172,7 +172,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d764/0d8a23e444ff34e96941686a3e798b3d42b74e6d697f4ed5e0d0490cc2d0.jpg){: width="300" height="300" .w-50 .left}
 
 
-[로보락 로봇청소기 S8 Plus, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7245496425&traceid=V0-153&itemId=18419322860&vendorItemId=86905921721)
+[로보락 로봇청소기 S8 Plus, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7245496425&traceid=V0-153&itemId=18419322860&vendorItemId=86905921721)
 <br>
 - 할인율과 원래가격: 
 - 가격: 1,042,500원
@@ -181,7 +181,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7245496425&traceid=V0-153&itemId=18419322860&vendorItemId=86905921721){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7245496425&traceid=V0-153&itemId=18419322860&vendorItemId=86905921721){: .right}
 <br>
 <br>
 
@@ -192,7 +192,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/812d/4e61529f79d9ffe5365ea7d222c7f5759780fadffea39a272406b12ed362.png){: width="300" height="300" .w-50 .right}
 
 
-[로보락 S8 Pro Ultra 물걸레겸용 로봇청소기 수입로봇청소기 저렴한로봇청소기 올인원, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7506746423&traceid=V0-153&itemId=19661429858&vendorItemId=86767206809)
+[로보락 S8 Pro Ultra 물걸레겸용 로봇청소기 수입로봇청소기 저렴한로봇청소기 올인원, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7506746423&traceid=V0-153&itemId=19661429858&vendorItemId=86767206809)
 <br>
 - 할인율과 원래가격: 7%  2,300,000   원
 - 가격: 2,136,500원
@@ -201,7 +201,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7506746423&traceid=V0-153&itemId=19661429858&vendorItemId=86767206809){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7506746423&traceid=V0-153&itemId=19661429858&vendorItemId=86767206809){: .left}
 <br>
 <br>
 
@@ -212,7 +212,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3ea3/be529457e2559a0bfbab0f1732e8f76986fbc1745e8a8a1abda8a18bc802.jpg){: width="300" height="300" .w-50 .left}
 
 
-[호환 로보락 S8 plus / S8 pro ultra 물걸레 소모품 더스트백 필터 걸레 부품, 회색 메인브러쉬 1EA, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7408885528&traceid=V0-153&itemId=19192108737&vendorItemId=86292082360)
+[호환 로보락 S8 plus / S8 pro ultra 물걸레 소모품 더스트백 필터 걸레 부품, 회색 메인브러쉬 1EA, 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7408885528&traceid=V0-153&itemId=19192108737&vendorItemId=86292082360)
 <br>
 - 할인율과 원래가격: 10%  10,000   원
 - 가격: 9,000원
@@ -221,7 +221,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7408885528&traceid=V0-153&itemId=19192108737&vendorItemId=86292082360){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7408885528&traceid=V0-153&itemId=19192108737&vendorItemId=86292082360){: .right}
 <br>
 <br>
 
@@ -232,7 +232,7 @@ pin: true
 ![로보락s8proultra TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7186691481439146-7f69e9f1-e160-4d19-82f3-73aac413955a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[로보락 S8 로봇청소기 S80ULT, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7243057952&traceid=V0-153&itemId=18408044113&vendorItemId=85573616645)
+[로보락 S8 로봇청소기 S80ULT, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7243057952&traceid=V0-153&itemId=18408044113&vendorItemId=85573616645)
 <br>
 - 할인율과 원래가격: 6%  789,000   원
 - 가격: 733,870원
@@ -241,7 +241,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7243057952&traceid=V0-153&itemId=18408044113&vendorItemId=85573616645){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7243057952&traceid=V0-153&itemId=18408044113&vendorItemId=85573616645){: .left}
 <br>
 <br>
 

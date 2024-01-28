@@ -13,7 +13,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cb61/6a7c277d2a97ce19164a64445ac19d628f065f99e508e0f2bd51af20726f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[Biorga 바이오가 바디워시 오일프리  모이스처 바디워시 대용량 bodywash 수딩젤 약산성 바디클렌저 임산부 아이 식물유래성분 1L 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7230739765&traceid=V0-153&itemId=18346835025&vendorItemId=87358723041)
+[Biorga 바이오가 바디워시 오일프리  모이스처 바디워시 대용량 bodywash 수딩젤 약산성 바디클렌저 임산부 아이 식물유래성분 1L 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7230739765&traceid=V0-153&itemId=18346835025&vendorItemId=87358723041)
 <br>
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: 23,020원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7230739765&traceid=V0-153&itemId=18346835025&vendorItemId=87358723041){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7230739765&traceid=V0-153&itemId=18346835025&vendorItemId=87358723041){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/985b/eac97eac50520fa595f14e4c8c2849433cdcd0ba598019a482236dc08b56.png){: width="300" height="300" .w-50 .right}
 
 
-[NEW 바이오가 모이스춰 바디워시 밸런싱 헤어 앤 바디클렌져 1000ml 임산부 유아 온가족 사용 가능 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7528350685&traceid=V0-153&itemId=19760776418&vendorItemId=87182036426)
+[NEW 바이오가 모이스춰 바디워시 밸런싱 헤어 앤 바디클렌져 1000ml 임산부 유아 온가족 사용 가능 2개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7528350685&traceid=V0-153&itemId=19760776418&vendorItemId=87182036426)
 <br>
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: 45,830원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7528350685&traceid=V0-153&itemId=19760776418&vendorItemId=87182036426){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7528350685&traceid=V0-153&itemId=19760776418&vendorItemId=87182036426){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2445/9f2a47cd9e9bbf17505a6f5627d143f256f6a64d87c45fa4049f02e3b4e3.png){: width="300" height="300" .w-50 .left}
 
 
-[오프온 바디워시 등드름 가드름 완화 식약처인증 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7606207756&traceid=V0-153&itemId=20133132930&vendorItemId=85786768548)
+[오프온 바디워시 등드름 가드름 완화 식약처인증 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7606207756&traceid=V0-153&itemId=20133132930&vendorItemId=85786768548)
 <br>
 - 할인율과 원래가격: 
 - 가격: 22,800원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7606207756&traceid=V0-153&itemId=20133132930&vendorItemId=85786768548){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7606207756&traceid=V0-153&itemId=20133132930&vendorItemId=85786768548){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/40d0/dffc0c490457416bcfba28e7778896f9d74c77c7d2ebe5325ea6f6cb5bcf.jpg){: width="300" height="300" .w-50 .right}
 
 
-[바이오가 등드름 바디워시 베타인살리실레이트 1000ml 사은품증정](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7223630106&traceid=V0-153&itemId=18312079341&vendorItemId=85457003638)
+[바이오가 등드름 바디워시 베타인살리실레이트 1000ml 사은품증정](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7223630106&traceid=V0-153&itemId=18312079341&vendorItemId=85457003638)
 <br>
 - 할인율과 원래가격: 
 - 가격: 32,350원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=7223630106&traceid=V0-153&itemId=18312079341&vendorItemId=85457003638){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7223630106&traceid=V0-153&itemId=18312079341&vendorItemId=85457003638){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2414695136577964-025fd710-5eda-422e-8a8a-3a239ff6d18f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[비오비타 배배 낙산균 유산균 분말 스틱 15g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2171440428&traceid=V0-153&itemId=3693946519&vendorItemId=71679257225)
+[비오비타 배배 낙산균 유산균 분말 스틱 15g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2171440428&traceid=V0-153&itemId=3693946519&vendorItemId=71679257225)
 <br>
 - 할인율과 원래가격: 71%  99,900   원
 - 가격: 27,130원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=2171440428&traceid=V0-153&itemId=3693946519&vendorItemId=71679257225){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2171440428&traceid=V0-153&itemId=3693946519&vendorItemId=71679257225){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5405449953749918-697e7b6c-34d0-40e4-b349-bf644eaae85f.png){: width="300" height="300" .w-50 .right}
 
 
-[세타필 대용량 젠틀 바디워시 산뜻한향 1000ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6997210279&traceid=V0-153&itemId=17146178283&vendorItemId=5628306897)
+[세타필 대용량 젠틀 바디워시 산뜻한향 1000ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6997210279&traceid=V0-153&itemId=17146178283&vendorItemId=5628306897)
 <br>
 - 할인율과 원래가격: 20%  45,000   원
 - 가격: 16,740원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6997210279&traceid=V0-153&itemId=17146178283&vendorItemId=5628306897){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6997210279&traceid=V0-153&itemId=17146178283&vendorItemId=5628306897){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4fab/88523cad61019ae42aa70a0d626c21d5bd3780ee4d737bdfe9b23907591f.png){: width="300" height="300" .w-50 .left}
 
 
-[연세대학교 탈모 줄기세포 연구소 개발 3종 특허 기능성 탈모 샴푸 프로프 시크릿 샴푸 1L 4개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6170561065&traceid=V0-153&itemId=13904609902&vendorItemId=77984881973)
+[연세대학교 탈모 줄기세포 연구소 개발 3종 특허 기능성 탈모 샴푸 프로프 시크릿 샴푸 1L 4개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6170561065&traceid=V0-153&itemId=13904609902&vendorItemId=77984881973)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,900원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6170561065&traceid=V0-153&itemId=13904609902&vendorItemId=77984881973){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6170561065&traceid=V0-153&itemId=13904609902&vendorItemId=77984881973){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d4e9/f9b4f6151a3f01dd643d7587f8be9f12210e3915c4520e8060843fd948bc.jpg){: width="300" height="300" .w-50 .right}
 
 
-[바이오가 바디워시 밀크 판테놀 헤어바디워시 오일프리 1000ml 약산성 헤어 앤 바디클렌저 biorga bodywash 여자 남자 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6875173852&traceid=V0-153&itemId=16460034433&vendorItemId=84778249312)
+[바이오가 바디워시 밀크 판테놀 헤어바디워시 오일프리 1000ml 약산성 헤어 앤 바디클렌저 biorga bodywash 여자 남자 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6875173852&traceid=V0-153&itemId=16460034433&vendorItemId=84778249312)
 <br>
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: 27,500원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6875173852&traceid=V0-153&itemId=16460034433&vendorItemId=84778249312){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6875173852&traceid=V0-153&itemId=16460034433&vendorItemId=84778249312){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8490035202622268-742628d4-19c1-404a-a373-445ef4eb7177.jpg){: width="300" height="300" .w-50 .left}
 
 
-[부케가르니 바디워시 화이트머스크 2개 1000ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6590874068&traceid=V0-153&itemId=5213593752&vendorItemId=70376998733)
+[부케가르니 바디워시 화이트머스크 2개 1000ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6590874068&traceid=V0-153&itemId=5213593752&vendorItemId=70376998733)
 <br>
 - 할인율과 원래가격: 35%  37,000   원
 - 가격: 21,900원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=6590874068&traceid=V0-153&itemId=5213593752&vendorItemId=70376998733){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6590874068&traceid=V0-153&itemId=5213593752&vendorItemId=70376998733){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![바이오가바디워시 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fef9/9369479789ddd27ccbbdeb925495dacc61166a794f06a1799b96e7f7c0d0.jpg){: width="300" height="300" .w-50 .right}
 
 
-[로하스베베 헤어 앤 바디워시 250ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1293680507&traceid=V0-153&itemId=2305557566&vendorItemId=3045855727)
+[로하스베베 헤어 앤 바디워시 250ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1293680507&traceid=V0-153&itemId=2305557566&vendorItemId=3045855727)
 <br>
 - 할인율과 원래가격: 
 - 가격: 41,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=wpmycafe24ree31206&pageKey=1293680507&traceid=V0-153&itemId=2305557566&vendorItemId=3045855727){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1293680507&traceid=V0-153&itemId=2305557566&vendorItemId=3045855727){: .left}
 <br>
 <br>
 
