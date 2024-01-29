@@ -63,7 +63,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6979/9757a9ccab2da49bd86996be92f4fe1c2a16be2b591ee388d0b81882808f.jpeg){: width="300" height="300" .w-50 .left}
 
 
-[Xiaomi Mijia 공기 청정기 4pro/lite 홈 오피스 지능형 포름알데히드 먼지 헤이즈 청정기, 풀 효과 공기 청정기 울트라](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7248826815&traceid=V0-153&itemId=18434541792&vendorItemId=85575935782)
+[Xiaomi Mijia 공기 청정기 4pro/lite 홈 오피스 지능형 포름알데히드 먼지 헤이즈 청정기, 풀 효과 공기 청정기 울트라](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7248826815&traceid=V0-153&itemId=18434541792&vendorItemId=85575935782)
 <br>
 - 할인율과 원래가격: 
 - 가격: 15,899,990원
@@ -72,7 +72,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7248826815&traceid=V0-153&itemId=18434541792&vendorItemId=85575935782){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7248826815&traceid=V0-153&itemId=18434541792&vendorItemId=85575935782){: .right}
 <br>
 <br>
 
@@ -83,7 +83,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/18/14/8/2e4855de-fdd5-4fc3-9ea0-467d0c711c43.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 블루스카이 3100 공기청정기 AX033B310GWD 33.1㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926)
+[삼성전자 블루스카이 3100 공기청정기 AX033B310GWD 33.1㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926)
 <br>
 - 할인율과 원래가격: 쿠폰할인가 35%  249,000   원
 - 가격: 160,100원
@@ -92,7 +92,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926){: .left}
 <br>
 <br>
 
@@ -103,7 +103,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2978621877215271-d0e94af9-8784-473f-b1ff-5109d697fdf0.jpg){: width="300" height="300" .w-50 .left}
 
 
-[삼성전자 블루스카이 3100 공기청정기 AX033B310GBD 33.1㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131)
+[삼성전자 블루스카이 3100 공기청정기 AX033B310GBD 33.1㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131)
 <br>
 - 할인율과 원래가격: 34%  249,000   원
 - 가격: 162,250원
@@ -112,7 +112,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131){: .right}
 <br>
 <br>
 
@@ -123,7 +123,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2442179130084885-091b5ebb-90f5-4db8-99a8-838f280ab705.jpg){: width="300" height="300" .w-50 .right}
 
 
-[쿠쿠 공기청정기 AC-W70M10FWS 68.9㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2305830666&traceid=V0-153&itemId=3974357990&vendorItemId=71958694876)
+[쿠쿠 공기청정기 AC-W70M10FWS 68.9㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2305830666&traceid=V0-153&itemId=3974357990&vendorItemId=71958694876)
 <br>
 - 할인율과 원래가격: 5%  272,780   원
 - 가격: 259,070원
@@ -132,7 +132,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2305830666&traceid=V0-153&itemId=3974357990&vendorItemId=71958694876){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2305830666&traceid=V0-153&itemId=3974357990&vendorItemId=71958694876){: .left}
 <br>
 <br>
 
@@ -143,7 +143,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/02/14/16/6/fbd42528-a45b-4921-a9ec-2d87b54cd345.jpg){: width="300" height="300" .w-50 .left}
 
 
-[샤오미 스마트 공기청정기 4 라이트 AC-M17-SC 43㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218)
+[샤오미 스마트 공기청정기 4 라이트 AC-M17-SC 43㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218)
 <br>
 - 할인율과 원래가격: 27%  175,050   원
 - 가격: 126,720원
@@ -152,7 +152,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218){: .right}
 <br>
 <br>
 
@@ -163,7 +163,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1077492432429589-f3968199-04b7-4d28-9624-b778e6d418fe.jpg){: width="300" height="300" .w-50 .right}
 
 
-[미코 미니 공기청정기 MK-AP-500 20㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924)
+[미코 미니 공기청정기 MK-AP-500 20㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924)
 <br>
 - 할인율과 원래가격: 쿠폰할인가 36%  89,000   원
 - 가격: 56,900원
@@ -172,7 +172,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924){: .left}
 <br>
 <br>
 
@@ -183,7 +183,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/02/14/16/6/fbd42528-a45b-4921-a9ec-2d87b54cd345.jpg){: width="300" height="300" .w-50 .left}
 
 
-[샤오미 스마트 공기청정기 4 라이트 AC-M17-SC 43㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218)
+[샤오미 스마트 공기청정기 4 라이트 AC-M17-SC 43㎡](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218)
 <br>
 - 할인율과 원래가격: 27%  175,050   원
 - 가격: 126,720원
@@ -192,7 +192,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7136722508&traceid=V0-153&itemId=17909012135&vendorItemId=85071713218){: .right}
 <br>
 <br>
 
@@ -203,7 +203,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1334193009690626-04ca0690-7d0a-4580-86c5-32f1516bd3a7.jpg){: width="300" height="300" .w-50 .right}
 
 
-[스마트미 공기청정기 P1(30㎡), ZMKQJHQP11 (다크그레이)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6304046623&traceid=V0-153&itemId=13051067806&vendorItemId=80313871240)
+[스마트미 공기청정기 P1(30㎡), ZMKQJHQP11 (다크그레이)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6304046623&traceid=V0-153&itemId=13051067806&vendorItemId=80313871240)
 <br>
 - 할인율과 원래가격: 즉시할인가 58%  172,730   원
 - 가격: 71,000원
@@ -212,7 +212,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6304046623&traceid=V0-153&itemId=13051067806&vendorItemId=80313871240){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6304046623&traceid=V0-153&itemId=13051067806&vendorItemId=80313871240){: .left}
 <br>
 <br>
 
@@ -223,7 +223,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fab2/16e612a7a69fd0f79b5579f00ec78b8c911fee35c33eec59fb6fb53e760a.jpg){: width="300" height="300" .w-50 .left}
 
 
-[가성비 공기청정기 20평 실내 가정용 업소용 사무실 대형 원룸 자취방 펫 이동식 대용량 미세 초미세먼지 헤파필터 가성비 밀렉스 스윗플래닛, 대형(20평)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435)
+[가성비 공기청정기 20평 실내 가정용 업소용 사무실 대형 원룸 자취방 펫 이동식 대용량 미세 초미세먼지 헤파필터 가성비 밀렉스 스윗플래닛, 대형(20평)](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435)
 <br>
 - 할인율과 원래가격: 40%  199,900   원
 - 가격: 119,000원
@@ -232,7 +232,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435){: .right}
 <br>
 <br>
 
@@ -243,7 +243,7 @@ pin: true
 ![공기청정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/01/18/17/8/896199de-b496-4bec-ba37-6470d45f37b6.jpg){: width="300" height="300" .w-50 .right}
 
 
-[LG 퓨리케어 360도 공기청정기 플러스 크리미스노우 AS283DWFA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7077324727&traceid=V0-153&itemId=17594876850&vendorItemId=84761251634)
+[LG 퓨리케어 360도 공기청정기 플러스 크리미스노우 AS283DWFA](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7077324727&traceid=V0-153&itemId=17594876850&vendorItemId=84761251634)
 <br>
 - 할인율과 원래가격: 5%  955,860   원
 - 가격: 899,100원
@@ -252,7 +252,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7077324727&traceid=V0-153&itemId=17594876850&vendorItemId=84761251634){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7077324727&traceid=V0-153&itemId=17594876850&vendorItemId=84761251634){: .left}
 <br>
 <br>
 

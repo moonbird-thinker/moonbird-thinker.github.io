@@ -42,7 +42,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/jrg7yget/542651f5632a4fd1aebd1b1894b386bc.jpg){: width="300" height="300" .w-50 .left}
 
 
-[씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
+[씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 <br>
 - 할인율과 원래가격: 
 - 가격: 204,900원
@@ -51,7 +51,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310){: .right}
 <br>
 <br>
 
@@ -62,7 +62,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/de70/f3d2d6957c8c8ac50b82d9cb911091aa5fbdbfeefbc2d36881cd23c3efa5.png){: width="300" height="300" .w-50 .right}
 
 
-[씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=83212197950)
+[씨게이트 ONE TOUCH 외장하드 + 파우치, 2TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=83212197950)
 <br>
 - 할인율과 원래가격: 
 - 가격: 115,900원
@@ -71,7 +71,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=83212197950){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=83212197950){: .left}
 <br>
 <br>
 
@@ -82,7 +82,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2270947233922808-10e745ff-93fa-4982-a692-fc18412c3f6c.jpg){: width="300" height="300" .w-50 .left}
 
 
-[비잽 외장하드 USB3.0 BZ33, 1TB, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500)
+[비잽 외장하드 USB3.0 BZ33, 1TB, 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500)
 <br>
 - 할인율과 원래가격: 1%  56,240   원
 - 가격: 55,350원
@@ -91,7 +91,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=173252633&traceid=V0-153&itemId=494906269&vendorItemId=4096250500){: .right}
 <br>
 <br>
 
@@ -102,7 +102,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/984d/1edcbf72964c31f0831ba6c73798a37235f2495d6e4dcfa0fb6d02e41026.jpg){: width="300" height="300" .w-50 .right}
 
 
-[삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575)
+[삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575)
 <br>
 - 할인율과 원래가격: 8%  136,000   원
 - 가격: 123,900원
@@ -111,7 +111,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575){: .left}
 <br>
 <br>
 
@@ -122,7 +122,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1649129441325251-3f22d6cc-081c-4100-aa77-bc31186c75fb.jpg){: width="300" height="300" .w-50 .left}
 
 
-[도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 4TB, 크림 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=4798364374&traceid=V0-153&itemId=6156817524&vendorItemId=73453010565)
+[도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 4TB, 크림 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4798364374&traceid=V0-153&itemId=6156817524&vendorItemId=73453010565)
 <br>
 - 할인율과 원래가격: 
 - 가격: 159,000원
@@ -131,7 +131,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=4798364374&traceid=V0-153&itemId=6156817524&vendorItemId=73453010565){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4798364374&traceid=V0-153&itemId=6156817524&vendorItemId=73453010565){: .right}
 <br>
 <br>
 
@@ -142,7 +142,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2447018791230298-3c17dba6-360f-437d-9ee5-c9db0bcdd94a.jpg){: width="300" height="300" .w-50 .right}
 
 
-[도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 2TB, 크림 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765)
+[도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 2TB, 크림 화이트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765)
 <br>
 - 할인율과 원래가격: 
 - 가격: 109,900원
@@ -151,7 +151,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=4798364374&traceid=V0-153&itemId=6211776190&vendorItemId=73507693765){: .left}
 <br>
 <br>
 
@@ -162,7 +162,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1322323869538366-24247370-3cd8-4d7d-90b9-becf4091e564.png){: width="300" height="300" .w-50 .left}
 
 
-[WD Elements Portable 휴대용 외장하드 + 파우치, 5TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256)
+[WD Elements Portable 휴대용 외장하드 + 파우치, 5TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256)
 <br>
 - 할인율과 원래가격: 
 - 가격: 175,000원
@@ -171,7 +171,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25271683&traceid=V0-153&itemId=2023304524&vendorItemId=70022949256){: .right}
 <br>
 <br>
 
@@ -182,7 +182,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2544147278710326-d1a8afb4-7e1a-43c4-ade2-dbd846ba973b.jpg){: width="300" height="300" .w-50 .right}
 
 
-[WD Elements Portable 휴대용 외장하드 + 파우치, 1TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993)
+[WD Elements Portable 휴대용 외장하드 + 파우치, 1TB, 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993)
 <br>
 - 할인율과 원래가격: 
 - 가격: 82,900원
@@ -191,7 +191,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=25271683&traceid=V0-153&itemId=98239780&vendorItemId=3179136993){: .left}
 <br>
 <br>
 
@@ -202,7 +202,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg){: width="300" height="300" .w-50 .left}
 
 
-[에이데이타 외장하드 HV320 2TB, 블루](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
+[에이데이타 외장하드 HV320 2TB, 블루](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 <br>
 - 할인율과 원래가격: 
 - 가격: 99,000원
@@ -211,7 +211,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036){: .right}
 <br>
 <br>
 
@@ -222,7 +222,7 @@ pin: true
 ![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/jrg7yget/542651f5632a4fd1aebd1b1894b386bc.jpg){: width="300" height="300" .w-50 .right}
 
 
-[씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
+[씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 <br>
 - 할인율과 원래가격: 
 - 가격: 204,900원
@@ -231,7 +231,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310){: .left}
 <br>
 <br>
 

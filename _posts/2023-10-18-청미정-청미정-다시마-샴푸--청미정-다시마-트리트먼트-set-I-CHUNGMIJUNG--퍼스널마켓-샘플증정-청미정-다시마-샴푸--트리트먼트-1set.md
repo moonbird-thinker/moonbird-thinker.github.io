@@ -13,7 +13,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e886/e1193d7de715af739fe1ef65d9877586cf9b782b85545814ca7ff9cf5ee8.png){: width="300" height="300" .w-50 .left}
 
 
-[청미정 다시마 샴푸  청미정 다시마 트리트먼트 set I CHUNGMIJUNG  퍼스널마켓 샘플증정 청미정 다시마 샴푸  트리트먼트 1set](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7158821751&traceid=V0-153&itemId=18012398844&vendorItemId=81024923428)
+[청미정 다시마 샴푸  청미정 다시마 트리트먼트 set I CHUNGMIJUNG  퍼스널마켓 샘플증정 청미정 다시마 샴푸  트리트먼트 1set](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7158821751&traceid=V0-153&itemId=18012398844&vendorItemId=81024923428)
 <br>
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: 68,500원
@@ -22,7 +22,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7158821751&traceid=V0-153&itemId=18012398844&vendorItemId=81024923428){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7158821751&traceid=V0-153&itemId=18012398844&vendorItemId=81024923428){: .right}
 <br>
 <br>
 
@@ -33,7 +33,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/06ab/0109839b6125b06e9fa413f4a4da6f173223179bd32b636d35d374d416a9.jpg){: width="300" height="300" .w-50 .right}
 
 
-[청미정 기미잡티크림 카카두플럼크림 피부주름 보습영양감 오늘출발 50g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7159536599&traceid=V0-153&itemId=18015368561&vendorItemId=84983258583)
+[청미정 기미잡티크림 카카두플럼크림 피부주름 보습영양감 오늘출발 50g 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7159536599&traceid=V0-153&itemId=18015368561&vendorItemId=84983258583)
 <br>
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: 36,300원
@@ -42,7 +42,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7159536599&traceid=V0-153&itemId=18015368561&vendorItemId=84983258583){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7159536599&traceid=V0-153&itemId=18015368561&vendorItemId=84983258583){: .left}
 <br>
 <br>
 
@@ -53,7 +53,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5c37/a2ec0b6fd23ad734f02cf38774cc1a3351954223edf9398519410460a796.jpg){: width="300" height="300" .w-50 .left}
 
 
-[청미정 약알칼리성 클렌징폼 200ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6853874550&traceid=V0-153&itemId=16337932471&vendorItemId=84983178380)
+[청미정 약알칼리성 클렌징폼 200ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6853874550&traceid=V0-153&itemId=16337932471&vendorItemId=84983178380)
 <br>
 - 할인율과 원래가격: 
 - 가격: 28,000원
@@ -62,7 +62,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6853874550&traceid=V0-153&itemId=16337932471&vendorItemId=84983178380){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6853874550&traceid=V0-153&itemId=16337932471&vendorItemId=84983178380){: .right}
 <br>
 <br>
 
@@ -73,7 +73,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7424/901196666e3377ddde23c656eaab8884139d244b460fcaca59370c5c5660.jpg){: width="300" height="300" .w-50 .right}
 
 
-[청미정 다시마 트리트먼트 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6832329300&traceid=V0-153&itemId=16222436940&vendorItemId=84983546241)
+[청미정 다시마 트리트먼트 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6832329300&traceid=V0-153&itemId=16222436940&vendorItemId=84983546241)
 <br>
 - 할인율과 원래가격: 
 - 가격: 35,650원
@@ -82,7 +82,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6832329300&traceid=V0-153&itemId=16222436940&vendorItemId=84983546241){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6832329300&traceid=V0-153&itemId=16222436940&vendorItemId=84983546241){: .left}
 <br>
 <br>
 
@@ -93,7 +93,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/53c0/1d6d465807901a2059b8beb29d9e109219b9f7ad71715a515d4686bb8fb1.jpg){: width="300" height="300" .w-50 .left}
 
 
-[VC12 100 호주산 600 000ppm 카카두플럼 피부진정 멜라닌 생성억제 항산화 비타민C 기미크림 알파 1개 60ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7518924647&traceid=V0-153&itemId=19716492174&vendorItemId=86948838806)
+[VC12 100 호주산 600 000ppm 카카두플럼 피부진정 멜라닌 생성억제 항산화 비타민C 기미크림 알파 1개 60ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518924647&traceid=V0-153&itemId=19716492174&vendorItemId=86948838806)
 <br>
 - 할인율과 원래가격: 71%  99,900   원
 - 가격: 31,000원
@@ -102,7 +102,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7518924647&traceid=V0-153&itemId=19716492174&vendorItemId=86948838806){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518924647&traceid=V0-153&itemId=19716492174&vendorItemId=86948838806){: .right}
 <br>
 <br>
 
@@ -113,7 +113,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bf5f/c3c449f991779eedaa6a28a318a60bba1ff546c8ac96cb9e532d35e67929.jpg){: width="300" height="300" .w-50 .right}
 
 
-[VC12 100 호주산 600 000ppm 카카두플럼 피부진정 멜라닌 생성억제 항산화 비타민C 기미크림 알파 2개 60ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7518924647&traceid=V0-153&itemId=19716492179&vendorItemId=86948838802)
+[VC12 100 호주산 600 000ppm 카카두플럼 피부진정 멜라닌 생성억제 항산화 비타민C 기미크림 알파 2개 60ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518924647&traceid=V0-153&itemId=19716492179&vendorItemId=86948838802)
 <br>
 - 할인율과 원래가격: 20%  45,000   원
 - 가격: 59,800원
@@ -122,7 +122,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=7518924647&traceid=V0-153&itemId=19716492179&vendorItemId=86948838802){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=7518924647&traceid=V0-153&itemId=19716492179&vendorItemId=86948838802){: .left}
 <br>
 <br>
 
@@ -133,7 +133,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/77a7/6b1ac95b64718c37124b3fcfee2a5f0273406d9e400e8eec25d994821912.jpg){: width="300" height="300" .w-50 .left}
 
 
-[청미정 다시마샴푸 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2270312654&traceid=V0-153&itemId=3893118243&vendorItemId=84970629165)
+[청미정 다시마샴푸 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2270312654&traceid=V0-153&itemId=3893118243&vendorItemId=84970629165)
 <br>
 - 할인율과 원래가격: 
 - 가격: 33,500원
@@ -142,7 +142,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=2270312654&traceid=V0-153&itemId=3893118243&vendorItemId=84970629165){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=2270312654&traceid=V0-153&itemId=3893118243&vendorItemId=84970629165){: .right}
 <br>
 <br>
 
@@ -153,7 +153,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2c61/f908ad03eea6942cca42a445293147a5200f291615c018a0d70fbe0e7ce7.jpg){: width="300" height="300" .w-50 .right}
 
 
-[청미정 보검 선인장 앰플 1개 50ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6480310351&traceid=V0-153&itemId=14183306625&vendorItemId=84983377006)
+[청미정 보검 선인장 앰플 1개 50ml](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6480310351&traceid=V0-153&itemId=14183306625&vendorItemId=84983377006)
 <br>
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: 37,800원
@@ -162,7 +162,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6480310351&traceid=V0-153&itemId=14183306625&vendorItemId=84983377006){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6480310351&traceid=V0-153&itemId=14183306625&vendorItemId=84983377006){: .left}
 <br>
 <br>
 
@@ -173,7 +173,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/tby27b4v/061fe44064d242a5a75961bf6802ff1f.jpg){: width="300" height="300" .w-50 .left}
 
 
-[빅그린 헤어로스 시카 샴푸 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5937002344&traceid=V0-153&itemId=10567736177&vendorItemId=77849092716)
+[빅그린 헤어로스 시카 샴푸 500ml 1개](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5937002344&traceid=V0-153&itemId=10567736177&vendorItemId=77849092716)
 <br>
 - 할인율과 원래가격: 35%  37,000   원
 - 가격: 13,050원
@@ -182,7 +182,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=5937002344&traceid=V0-153&itemId=10567736177&vendorItemId=77849092716){: .right}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=5937002344&traceid=V0-153&itemId=10567736177&vendorItemId=77849092716){: .right}
 <br>
 <br>
 
@@ -193,7 +193,7 @@ pin: true
 ![청미정 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a64d/fbd4a75eeb6735ef8f4a2f4f7f8360dbe2c20fe6608220a9090ae0060924.jpg){: width="300" height="300" .w-50 .right}
 
 
-[청미정 다시마 샴푸트리트먼트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6778107989&traceid=V0-153&itemId=15932060429&vendorItemId=83139070728)
+[청미정 다시마 샴푸트리트먼트 1세트](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6778107989&traceid=V0-153&itemId=15932060429&vendorItemId=83139070728)
 <br>
 - 할인율과 원래가격: 
 - 가격: 63,000원
@@ -202,7 +202,7 @@ pin: true
 <br>
 <br>
 <br>
-[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubree31206&pageKey=6778107989&traceid=V0-153&itemId=15932060429&vendorItemId=83139070728){: .left}
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5108917&subid=githubmoonthinker&pageKey=6778107989&traceid=V0-153&itemId=15932060429&vendorItemId=83139070728){: .left}
 <br>
 <br>
 
