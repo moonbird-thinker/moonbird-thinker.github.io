@@ -1,14 +1,23 @@
 /* ── Sidebar balance ── */
 
-/* 사이드바 상단 여백 확보 */
+/* 사이드바 상단 여백 확보 + 좌우 패딩 대칭 */
 #sidebar .profile-wrapper {
   padding-top: 2.5rem;
   padding-bottom: 2rem;
+  padding-left: 2.5rem;   /* Chirpy 기본값과 동일 */
+  padding-right: 2.5rem;  /* 기본값 1.25rem → 2.5rem으로 대칭 */
 }
 
-/* 아바타 하단 여백 */
+/* 아바타: 하단 클리핑 방지 + 이미지 비율 보정 */
 #sidebar #avatar {
   margin-bottom: 1rem;
+}
+
+#sidebar #avatar img {
+  width: 100%;
+  height: 100%;
+  object-fit: cover;
+  object-position: center center;
 }
 
 /* 제목과 태그라인 사이 간격 */
