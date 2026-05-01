@@ -26,6 +26,26 @@
   padding-bottom: 0.5rem;
 }
 
+/* ── KakaoTalk custom icons ── */
+#sidebar .sidebar-bottom i.kakao-openchat,
+#sidebar .sidebar-bottom i.kakao-profile {
+  display: inline-block;
+  width: 1.2em;
+  height: 1.2em;
+  background-size: contain;
+  background-repeat: no-repeat;
+  background-position: center;
+  vertical-align: -0.2em;
+}
+
+#sidebar .sidebar-bottom i.kakao-openchat {
+  background-image: url("/assets/img/kakao-chat.svg");
+}
+
+#sidebar .sidebar-bottom i.kakao-profile {
+  background-image: url("/assets/img/kakao-me.svg");
+}
+
 /* ── Main content top balance ── */
 
 /* 상단 헤더와 콘텐츠 사이 여백 */

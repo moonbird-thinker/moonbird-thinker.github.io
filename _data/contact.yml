@@ -17,6 +17,14 @@
 - type: rss
   icon: "fas fa-rss"
   noblank: true
+
+- type: kakao-openchat
+  icon: "kakao-openchat"
+  url: "https://open.kakao.com/o/gXPgJC9d"
+
+- type: kakao-profile
+  icon: "kakao-profile"
+  url: "https://open.kakao.com/me/moonbirdthinker3"
 # Uncomment and complete the url below to enable more contact options
 #
 # - type: mastodon
