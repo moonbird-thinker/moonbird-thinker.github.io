@@ -1,0 +1,34 @@
+/* ── Sidebar balance ── */
+
+/* 사이드바 상단 여백 확보 */
+#sidebar .profile-wrapper {
+  padding-top: 2.5rem;
+  padding-bottom: 2rem;
+}
+
+/* 아바타 하단 여백 */
+#sidebar #avatar {
+  margin-bottom: 1rem;
+}
+
+/* 제목과 태그라인 사이 간격 */
+#sidebar .site-title {
+  margin-bottom: 0.3rem;
+}
+
+#sidebar .site-subtitle {
+  margin-bottom: 0;
+}
+
+/* 내비게이션 항목 상하 패딩 균일화 */
+#sidebar .nav-item .nav-link {
+  padding-top: 0.5rem;
+  padding-bottom: 0.5rem;
+}
+
+/* ── Main content top balance ── */
+
+/* 상단 헤더와 콘텐츠 사이 여백 */
+#main-wrapper {
+  padding-top: 1rem;
+}
