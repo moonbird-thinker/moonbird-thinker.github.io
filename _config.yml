@@ -14,9 +14,9 @@ timezone: Asia/Seoul
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: MoonbirdThinker
+title: Moonbird.Thinker
 
-tagline: 생각하는 새의 기록
+tagline: 이기적인 생각의 기록
 
 description: >- # used by seo meta and the atom feed
   기술, 자동화, 그리고 생각을 기록하는 블로그
