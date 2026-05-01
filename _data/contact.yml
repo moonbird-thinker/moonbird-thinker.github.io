@@ -10,6 +10,10 @@
   icon: "fas fa-envelope"
   noblank: true # open link in current tab
 
+- type: instagram
+  icon: "fab fa-instagram"
+  url: "https://www.instagram.com/moonbird.thinker"
+
 - type: rss
   icon: "fas fa-rss"
   noblank: true
