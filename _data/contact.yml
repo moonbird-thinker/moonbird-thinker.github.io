@@ -13,6 +13,7 @@
 - type: instagram
   icon: "fab fa-instagram"
   url: "https://www.instagram.com/moonbird.thinker"
+  noblank: true
 
 - type: rss
   icon: "fas fa-rss"
@@ -21,10 +22,12 @@
 - type: kakao-openchat
   icon: "kakao-openchat"
   url: "https://open.kakao.com/o/gXPgJC9d"
+  noblank: true
 
 - type: kakao-profile
   icon: "kakao-profile"
   url: "https://open.kakao.com/me/moonbirdthinker3"
+  noblank: true
 # Uncomment and complete the url below to enable more contact options
 #
 # - type: mastodon

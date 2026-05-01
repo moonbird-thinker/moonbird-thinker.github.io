@@ -8,4 +8,57 @@
 {%- endif -%}
 ';
 
-@use 'custom';
+/* ── Sidebar: profile area balance ── */
+
+#sidebar .profile-wrapper {
+  padding-top: 2.5rem;
+  padding-bottom: 2rem;
+  padding-right: 2.5rem; /* 기본 1.25rem → 좌측 2.5rem과 대칭 */
+}
+
+#sidebar #avatar {
+  margin-bottom: 1rem;
+}
+
+/* 아바타 이미지 클리핑 방지 */
+#sidebar #avatar img {
+  width: 100%;
+  height: 100%;
+  object-fit: cover;
+  object-position: center center;
+}
+
+#sidebar .site-title {
+  margin-bottom: 0.3rem;
+}
+
+#sidebar .site-subtitle {
+  margin-bottom: 0;
+}
+
+/* ── Sidebar: nav items ── */
+
+#sidebar .nav-item .nav-link {
+  padding-top: 0.5rem;
+  padding-bottom: 0.5rem;
+}
+
+/* ── KakaoTalk custom icons ── */
+
+#sidebar .sidebar-bottom a[aria-label="kakao-openchat"] i,
+#sidebar .sidebar-bottom a[aria-label="kakao-profile"] i {
+  display: block;
+  width: 1.4rem;
+  height: 1.4rem;
+  background-size: contain;
+  background-repeat: no-repeat;
+  background-position: center;
+}
+
+#sidebar .sidebar-bottom a[aria-label="kakao-openchat"] i {
+  background-image: url("/assets/img/kakao-chat.svg");
+}
+
+#sidebar .sidebar-bottom a[aria-label="kakao-profile"] i {
+  background-image: url("/assets/img/kakao-me.svg");
+}
