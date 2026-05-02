@@ -27,13 +27,29 @@ AI의 변화 속도는 빠릅니다. 공부한 것을 그냥 흘려보내기 아
 
 ---
 
-## 학력 및 전공
+## 학력
 
-전공은 **데이터 통신(Data Communications)** 분야이며, 박사 학위 논문은 다음과 같습니다.
+| 구분 | 학교 | 전공 |
+|------|------|------|
+| 학사 | 고려대학교 | 데이터 통신 |
+| 석사 | 고려대학교 | 데이터 통신 |
+| 박사 | 고려대학교 | 데이터 통신 |
 
-> **"A Study on Co-Channel Interference Mitigation for Cellular Network based D2D (Device-to-Device) Communication"**
+**박사 학위 논문**
 
-셀룰러 네트워크 기반 D2D(기기 간 직접 통신) 환경에서 동일 채널 간섭(Co-Channel Interference)을 완화하는 방법을 연구했습니다.
+> "A Study on Co-Channel Interference Mitigation for Cellular Network based D2D (Device-to-Device) Communication"
+
+셀룰러 네트워크 기반 D2D(Device-to-Device) 환경에서의 동일 채널 간섭(Co-Channel Interference) 완화 방법 연구.
+
+---
+
+## 경력
+
+| 구분 | 내용 |
+|------|------|
+| 재직 | 삼성전자 DX부문 AIoT 솔루션 팀 |
+| 현재 과제 | SmartThings Pro |
+| 총 경력 | 20년 이상 (풀스택 개발 / 자동화 / 인프라)
 
 ---
 
