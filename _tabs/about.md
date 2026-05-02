@@ -29,17 +29,9 @@ AI의 변화 속도는 빠릅니다. 공부한 것을 그냥 흘려보내기 아
 
 ## 학력
 
-| 구분 | 학교 | 전공 |
-|------|------|------|
-| 학사 | 고려대학교 | 데이터 통신 |
-| 석사 | 고려대학교 | 데이터 통신 |
-| 박사 | 고려대학교 | 데이터 통신 |
-
-**박사 학위 논문**
-
-> "A Study on Co-Channel Interference Mitigation for Cellular Network based D2D (Device-to-Device) Communication"
-
-셀룰러 네트워크 기반 D2D(Device-to-Device) 환경에서의 동일 채널 간섭(Co-Channel Interference) 완화 방법 연구.
+- **B.S.** — 고려대학교, 데이터 통신
+- **M.S.** — 고려대학교, 데이터 통신
+- **Ph.D.** — 고려대학교, 데이터 통신 / *"A Study on Co-Channel Interference Mitigation for Cellular Network based D2D Communication"*
 
 ---
 
