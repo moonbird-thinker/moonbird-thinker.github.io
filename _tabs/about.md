@@ -12,6 +12,28 @@ order: 4
 
 ---
 
+## 학력 및 전공
+
+전공은 **데이터 통신(Data Communications)** 분야이며, 박사 학위 논문은 다음과 같습니다.
+
+> **"A Study on Co-Channel Interference Mitigation for Cellular Network based D2D (Device-to-Device) Communication"**
+
+셀룰러 네트워크 기반 D2D(기기 간 직접 통신) 환경에서 동일 채널 간섭(Co-Channel Interference)을 완화하는 방법을 연구했습니다.
+
+---
+
+## 유튜브 채널
+
+[![YouTube](https://img.shields.io/badge/YouTube-moonbird.thinker-red?logo=youtube)](https://youtube.com/@moonbird.thinker)
+
+**[youtube.com/@moonbird.thinker](https://youtube.com/@moonbird.thinker)**
+
+> *N잡러 시대에 다양한 온라인 패시브 인컴(Passive Income)과 생활의 자동화를 꿈꾼다면 소주제로 프로그램에 도전하세요!!!*
+
+편집 없는 **실시간 녹화 영상**을 공개로 올리는 채널입니다. 코딩 과정과 시행착오를 그대로 담아, 같은 고민을 하는 분들에게 실질적인 참고가 되길 바라는 마음으로 운영하고 있습니다.
+
+---
+
 ## 이 블로그에 대하여
 
 AI의 변화 속도는 빠릅니다. 공부한 것을 그냥 흘려보내기 아까워 기록으로 남기기 시작했습니다.
