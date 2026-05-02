@@ -29,9 +29,8 @@ AI의 변화 속도는 빠릅니다. 공부한 것을 그냥 흘려보내기 아
 
 ## 학력
 
-- **B.S.** — 고려대학교, 데이터 통신
-- **M.S.** — 고려대학교, 데이터 통신
-- **Ph.D.** — 고려대학교, 데이터 통신 / *"A Study on Co-Channel Interference Mitigation for Cellular Network based D2D Communication"*
+- **B.S. / M.S.** — 고려대학교
+- **Ph.D.** — 고려대학교 / *"A Study on Co-Channel Interference Mitigation for Cellular Network based D2D Communication"*
 
 ---
 
