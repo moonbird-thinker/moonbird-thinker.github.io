@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] Claude CLI와 Gemini API로 상품 소개글 자동 생성하기"
-date: 2026-05-11 09:00:00 +0900
+date: 2026-04-05 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, AI, 파이썬, 블로그자동화, 패시브인컴, ClaudeAPI, GeminiAPI, AI글쓰기]
 description: "쿠팡·알리익스프레스 상품 정보를 Claude CLI와 Gemini API로 자동 글쓰기로 변환하는 파이프라인을 공개합니다. 프롬프트 설계, API 비용 절감 전략, 품질 검증까지 다룹니다."

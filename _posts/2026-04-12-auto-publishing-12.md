@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] Registry 패턴으로 파이프라인 자동 발견 스케줄러 만들기"
-date: 2026-05-25 09:00:00 +0900
+date: 2026-04-12 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, Python스케줄러, registry패턴, pkgutil]
 description: "pkgutil.iter_modules()를 활용한 Python 파이프라인 자동 발견(auto-discovery) 패턴을 설명합니다. 새 파이프라인 파일을 추가하면 스케줄러가 자동으로 인식하는 확장 가능한 구조입니다."

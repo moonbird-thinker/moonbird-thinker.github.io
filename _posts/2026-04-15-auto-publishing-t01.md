@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 쿠팡 크롤링 403 Access Denied 완전 해부 — Cloudflare WAF가 막는 이유와 CDP 우회 전략"
-date: 2026-05-31 09:00:00 +0900
+date: 2026-04-15 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 쿠팡크롤링, 403오류, CloudflareWAF, ChromeCDP, 봇탐지]
 description: "쿠팡 크롤링 시 403 Access Denied가 발생하는 정확한 원인을 분석하고, Chrome CDP 모바일 에뮬레이션으로 우회하는 전략을 단계별로 설명합니다. 실패한 시도들도 포함합니다."

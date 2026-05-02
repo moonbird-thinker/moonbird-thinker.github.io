@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 티스토리 자동 발행 — Playwright Persistent Context로 Kakao SSO 유지"
-date: 2026-05-15 09:00:00 +0900
+date: 2026-04-07 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, 티스토리자동발행, 카카오SSO, Playwright]
 description: "티스토리 자동 발행에서 가장 어려운 부분인 카카오 SSO 세션 유지를 Playwright Persistent Context로 해결한 방법을 설명합니다. CAPTCHA 추가 인증 감지와 텔레그램 알림까지 구현합니다."

@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] Rate Limit 429 대응 — Google·Naver 색인 API 일일 한도 초과 처리 전략"
-date: 2026-06-06 09:00:00 +0900
+date: 2026-04-18 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 429오류, RateLimit, GoogleIndexingAPI, 네이버서치어드바이저]
 description: "Google Indexing API 일일 200개, 네이버 서치어드바이저 일일 50개 한도를 관리하며 색인 효율을 극대화하는 전략을 설명합니다. 429 응답 처리와 URL 우선순위 큐 설계까지 다룹니다."

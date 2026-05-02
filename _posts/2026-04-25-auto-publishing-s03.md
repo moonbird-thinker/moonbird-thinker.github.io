@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] Google Search Console Indexing API 자동화 — 발행 즉시 색인 요청 파이프라인 구축"
-date: 2026-06-20 09:00:00 +0900
+date: 2026-04-25 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, SEO, GoogleIndexingAPI, SearchConsole, 서비스계정, JWT인증, 즉시색인]
 description: "Google Indexing API를 서비스 계정으로 인증하고, 포스트 발행 즉시 색인 요청을 보내는 파이프라인을 구축하는 방법을 단계별로 설명합니다."

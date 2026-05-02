@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 알리익스프레스 CAPTCHA 슬라이더 자동 감지 — nc_container·punish URL 패턴 분석"
-date: 2026-06-02 09:00:00 +0900
+date: 2026-04-16 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 알리익스프레스, CAPTCHA, playwright-stealth, 슬라이더CAPTCHA]
 description: "알리익스프레스 크롤링에서 자주 마주치는 슬라이더 CAPTCHA의 URL 패턴과 DOM 요소를 정확히 감지하고, headful 모드·playwright-stealth로 발생 빈도를 줄이는 전략을 설명합니다."

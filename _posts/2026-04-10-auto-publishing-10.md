@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] SNS 4개 동시 자동화 — Twitter·Threads·Instagram·Pinterest"
-date: 2026-05-21 09:00:00 +0900
+date: 2026-04-10 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, SNS자동화, Threads, Twitter, Pinterest]
 description: "블로그 발행 후 SNS 4곳에 자동으로 홍보 포스팅하는 파이프라인을 구현했습니다. Threads Graph API, Twitter v2 API, Instagram Graph API, Pinterest API 연동 방법을 설명합니다."

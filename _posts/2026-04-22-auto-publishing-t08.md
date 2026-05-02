@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 자동화 탐지 우회 종합 — headful 모드·stealth 패치·랜덤 딜레이 실전 조합"
-date: 2026-06-14 09:00:00 +0900
+date: 2026-04-22 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 봇탐지우회, PlaywrightStealth, headful, AutomationControlled, 랜덤딜레이]
 description: "자동화 스크립트가 봇으로 탐지되는 원인을 분석하고, headful 모드·playwright-stealth·랜덤 딜레이·User-Agent 모사를 조합해 탐지를 우회하는 실전 전략을 설명합니다."

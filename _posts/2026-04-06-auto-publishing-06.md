@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] WordPress REST API로 멀티 사이트 자동 발행 구현"
-date: 2026-05-13 09:00:00 +0900
+date: 2026-04-06 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, WordPress, RESTAPI, JWT인증]
 description: "WordPress REST API와 JWT 인증을 활용해 여러 WordPress 사이트에 동시 자동 발행하는 파이프라인 구현을 설명합니다. 멀티 프로필 관리와 이미지 업로드까지 다룹니다."

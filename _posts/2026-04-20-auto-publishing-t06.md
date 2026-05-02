@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 로그인 폼 셀렉터 깨짐 대응 — CSS 다중 폴백과 동적 DOM 변화 처리 패턴"
-date: 2026-06-10 09:00:00 +0900
+date: 2026-04-20 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, Playwright, CSS셀렉터, 동적DOM, 로그인자동화]
 description: "네이버·카카오 등 플랫폼이 로그인 폼 UI를 변경할 때 Playwright 셀렉터가 깨지는 문제를 다중 폴백 패턴과 동적 DOM 감지로 안정적으로 처리하는 방법을 설명합니다."

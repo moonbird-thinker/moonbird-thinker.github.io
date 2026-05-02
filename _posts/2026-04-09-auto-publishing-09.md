@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] GitHub Pages 자동 발행 — Jekyll Markdown 자동 커밋·푸시"
-date: 2026-05-19 09:00:00 +0900
+date: 2026-04-09 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, GitHubPages, Jekyll자동화, git자동화]
 description: "GitHub Pages + Jekyll 블로그에 Python으로 Markdown 파일을 자동 생성하고 커밋·푸시하는 파이프라인을 공개합니다. GitHub Actions와 연동해 자동 빌드·배포까지 완전 자동화합니다."

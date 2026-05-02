@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 플랫폼별 인증 전략 총정리 — CDP·RSA·HMAC·JWT·Playwright"
-date: 2026-05-29 09:00:00 +0900
+date: 2026-04-14 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, 웹크롤링인증, RSA암호화, HMAC, JWT, Playwright]
 description: "자동 발행 시스템에서 사용한 모든 인증 전략을 플랫폼별로 총정리합니다. CDP, RSA, HMAC-SHA256, JWT Bearer, Playwright Persistent Context 각각의 선택 기준과 트레이드오프를 설명합니다."

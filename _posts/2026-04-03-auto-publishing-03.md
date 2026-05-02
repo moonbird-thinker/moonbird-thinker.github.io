@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 쿠팡 크롤링 — Access Denied 뚫기: Chrome CDP로 WAF 우회하고 파트너스 링크 자동 생성"
-date: 2026-05-07 09:00:00 +0900
+date: 2026-04-03 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, 쿠팡크롤링, ChromeCDP, WAF우회]
 description: "쿠팡 크롤링 시 가장 큰 장벽인 Cloudflare WAF의 403 Access Denied를 Chrome DevTools Protocol로 우회하는 실전 구현을 공개합니다. 모바일 에뮬레이션과 로컬 Chrome 프로필 활용이 핵심입니다."

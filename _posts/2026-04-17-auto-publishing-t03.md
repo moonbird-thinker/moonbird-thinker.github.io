@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 세션 만료와 자동 재로그인 — Persistent Profile vs requests.Session 실전 비교"
-date: 2026-06-04 09:00:00 +0900
+date: 2026-04-17 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 세션만료, Playwright, requests세션, 자동재로그인, 쿠키영속화]
 description: "자동 발행 시스템에서 가장 흔한 장애 원인인 세션 만료를 플랫폼별로 감지하고 자동으로 재로그인하는 전략을 비교합니다. Playwright Persistent Context와 requests.Session의 선택 기준을 설명합니다."

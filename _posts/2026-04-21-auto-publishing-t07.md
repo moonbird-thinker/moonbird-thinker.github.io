@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] AliExpress 5xx 오류 복구 — warmup 세션 재구성과 storage_state 초기화 전략"
-date: 2026-06-12 09:00:00 +0900
+date: 2026-04-21 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 트러블슈팅, 알리익스프레스, 5xx오류, ERR_HTTP_RESPONSE_CODE_FAILURE, 세션초기화]
 description: "알리익스프레스 크롤링 중 발생하는 5xx 서버 오류와 ERR_HTTP_RESPONSE_CODE_FAILURE를 warmup 세션 재구성과 storage_state 초기화로 복구하는 2단계 전략을 설명합니다."

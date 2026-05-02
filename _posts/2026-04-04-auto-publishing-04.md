@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] 알리익스프레스 크롤링 — Playwright로 CAPTCHA 우회하고 제휴 링크 추출"
-date: 2026-05-09 09:00:00 +0900
+date: 2026-04-04 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, 파이썬, 블로그자동화, 패시브인컴, 알리익스프레스, Playwright, CAPTCHA우회]
 description: "알리익스프레스 크롤링에서 가장 큰 난관인 슬라이더 CAPTCHA와 세션 관리를 Playwright와 playwright-stealth로 해결한 실전 구현을 공개합니다."

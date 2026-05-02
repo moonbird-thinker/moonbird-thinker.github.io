@@ -1,6 +1,6 @@
 ---
 title: "[Auto-Publishing] ItemScout·판다랭크·DataLab으로 키워드 풀 5,000개 만들기"
-date: 2026-05-05 09:00:00 +0900
+date: 2026-04-02 09:00:00 +0900
 categories: [프로젝트, Auto-Publishing]
 tags: [자동화, AI, 파이썬, 블로그자동화, 패시브인컴, SEO키워드, ItemScout]
 description: "자동 발행 시스템의 시작점인 키워드 수집을 자동화한 방법을 공개합니다. ItemScout, 판다랭크, 네이버 데이터랩을 조합해 검색 수요가 검증된 키워드 풀 5,000개를 만드는 파이프라인을 설명합니다."
