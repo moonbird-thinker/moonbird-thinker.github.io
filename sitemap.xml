@@ -1,0 +1,27 @@
+---
+layout: null
+sitemap: false
+---
+<?xml version="1.0" encoding="UTF-8"?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
+  <url>
+    <loc>{{ site.url }}/</loc>
+    <lastmod>{{ site.time | date: "%Y-%m-%d" }}</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  {% for post in site.posts %}
+    {% unless post.sitemap == false %}
+  <url>
+    <loc>{{ site.url }}{{ post.url }}</loc>
+    {% if post.last_modified_at %}
+    <lastmod>{{ post.last_modified_at | date: "%Y-%m-%d" }}</lastmod>
+    {% else %}
+    <lastmod>{{ post.date | date: "%Y-%m-%d" }}</lastmod>
+    {% endif %}
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+    {% endunless %}
+  {% endfor %}
+</urlset>
